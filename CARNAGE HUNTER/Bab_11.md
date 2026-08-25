@@ -1,0 +1,67 @@
+# Bab 11: Bentrokan di Alun-Alun Kematian
+
+Matahari terbit dengan redup di balik kabut tebal abu-abu kehijauan yang menyelimuti wilayah udara Distrik Delapan. Udara di tempat ini berbau logam berkarat dan asam menyengat, mempertegas atmosfer suram kota mati yang menjadi sarang monster.
+
+Zirah taktis milik personel Regu Obsidian dan Regu Crimson tampak memantulkan sisa cahaya fajar saat melintasi gerbang batas sektor.
+
+Di barisan paling depan, Go Han-Seo bergerak dengan gesit. Langkah kakinya sangat tenang, hampir tidak mengeluarkan suara saat menapaki tanah berpasir. Sebagai Combat Scout, ia bertugas memetakan rute aman bagi pasukan utama yang berjarak lima puluh meter di belakangnya.
+
+Han-Seo memperhatikan reruntuhan bangunan beton di sekelilingnya dengan cermat.
+
+Di sepanjang jalan yang hancur, tampak berserakan sisa-sisa tulang berukuran besar dan pecahan cangkang keras milik monster yang telah mati. Pola kehancuran di distrik ini terasa berbeda dari sektor-sektor sebelumnya. Tembok-tembok tebal hancur berantakan akibat benturan kekuatan fisik murni yang sangat masif, bukan karena ledakan senjata.
+
+"Semua sisa bangkai di daerah ini berasal dari Tyrant-Class," gumam Han-Seo dalam hati.
+
+Ia mendongak, merasakan pergeseran suhu udara sekitar dengan saraf sensitifnya. Suhu di Distrik Delapan terasa lebih hangat dari biasanya, menandakan adanya radiasi panas konstan yang dipancarkan oleh aktivitas biologis monster-monster kuat di sekitar sana.
+
+Mereka berjalan beberapa ratus meter melewati tikungan jalan raya yang hancur. Di tengah alun-alun utama Distrik Delapan, sebuah kepompong raksasa berdiri kokoh.
+
+Kepompong setinggi sepuluh meter itu kini berdenyut kencang. Retakan merah menyala mulai menjalar di seluruh permukaannya, disertai suara derak keras yang menggetarkan permukaan tanah di bawah kaki para Hunter.
+
+BUM!
+
+Kepompong organik raksasa itu pecah berantakan dengan ledakan gelombang kejut yang sangat dahsyat. Hujan lendir pekat dan kepingan cangkang keras berhamburan ke segala arah. 
+
+Namun, dari balik kepulan kabut hitam yang keluar dari dalam kepompong, di luar dugaan, tidak hanya muncul satu monster. Satu per satu, bayangan humanoid setinggi tiga meter berjalan keluar dengan langkah perlahan namun mengintimidasi.
+
+Mereka adalah kelompok Tyrant-Class.
+
+Satu, dua, tiga... hingga total ada sekitar dua puluh ekor Tyrant-Class yang membentuk barisan pengawal elit di alun-alun tersebut. Kulit mereka berupa cangkang chitin hitam mengkilap dengan duri-duri tajam dan bilah pisau biologis di sepanjang lengan mereka.
+
+Di belakang barisan dua puluh Tyrant tersebut, berdiri tegak sesosok entitas setinggi empat meter dengan wujud yang jauh lebih mengerikan namun proporsional. 
+
+Makhluk itu adalah Extinction-Class.
+
+Monster Kelas Kepunahan itu sama sekali belum bergerak dari posisinya. Ia hanya berdiri tenang di bagian belakang, melipat kedua lengan atasnya di depan dada. Sepasang matanya yang memancarkan pendaran merah redup menatap ke arah pasukan Hunter dengan sorot mata penuh kecerdasan taktis yang dingin dan intimidasi mutlak. Tatapan matanya seolah sangat yakin bahwa sekelompok manusia di hadapannya terlalu lemah dan pasti akan mati tanpa perlu ia turun tangan sendiri.
+
+"Dua puluh Tyrant-Class sekaligus..." suara Komandan Kang Mu-Jin terdengar gemetar melalui saluran komunikasi zirah. "Dan satu tingkat ancaman di atasnya... ini mustahil."
+
+Namun, gerombolan Tyrant tidak memberikan waktu bagi manusia untuk ragu.
+
+Atas perintah tak terlihat dari Extinction-Class di belakang mereka, dua puluh Tyrant itu melesat maju secara serentak. Kecepatan mereka sangat luar biasa, memecah udara fajar hingga menimbulkan suara mendesing yang memekakkan telinga.
+
+"Bentuk formasi lingkaran pertahanan sekarang!" teriak Wakil Komandan Yoon Tae-Sik panik.
+
+"Crimson, semprotkan api termal! Obsidian, tahan garis depan!" perintah Komandan Kang Mu-Jin sambil melesat maju ke garis depan.
+
+Pertempuran paling brutal sepanjang sejarah berdirinya pos karantina pun pecah di tengah alun-alun.
+
+Semburan api bersuhu seribu dua ratus derajat celsius dari senjata berat Regu Crimson langsung membakar area sebelah kiri, mencoba menghalau laju monster. Komandan Kang mengerahkan seluruh energi Awakening fisiknya, melancarkan pukulan berkekuatan kinetik tinggi yang menghantam dada salah satu Tyrant hingga cangkang kerasnya retak.
+
+Namun, perbedaan kekuatan terlalu jauh.
+
+Dua puluh Tyrant-Class itu bergerak dengan taktik kelompok yang sangat rapi. Mereka saling menutupi titik lemah rekan mereka dan menyerang titik buta pertahanan Hunter secara bergantian. Setiap kali satu Tyrant berhasil dipukul mundur, dua Tyrant lainnya langsung menerjang masuk dari arah samping.
+
+BUM! KRAK!
+
+Tameng energi milik Regu Obsidian pecah berkeping-keping akibat tebasan bertubi-tubi bilah pisau biologis Tyrant. Beberapa Hunter terlempar belasan meter ke arah reruntuhan bangunan dengan zirah hancur dan tubuh berlumuran darah.
+
+Wakil Komandan Yoon Tae-Sik terdesak hebat di sisi kanan. Dua pisau biometriknya patah setelah berbenturan dengan cakar keras monster. Ia terhempas ke aspal dengan luka robek besar di pundaknya.
+
+Han-Seo yang bertarung di barisan samping mencoba menahan laju serangan menggunakan pisau taktis standarnya. Mengandalkan insting prediksi anatomi dan kepadatan otot fisiknya, ia berhasil menangkis sabetan cakar Tyrant yang mengarah ke kepalanya, memicu percikan bunga api besar. Namun, ia sengaja membatasi kekuatannya agar tidak memicu kecurigaan.
+
+Hanya dalam waktu sepuluh menit pertempuran, pasukan gabungan Asosiasi kalah telak.
+
+Lebih dari separuh personel Regu Crimson dan Obsidian tergeletak terluka parah di tanah. Zirah-zirah taktis mereka hancur, pasokan amunisi senjata berat habis, dan energi Awakening para Hunter senior telah terkuras hingga batas akhir.
+
+Di ujung alun-alun, monster Extinction-Class masih berdiri tenang tanpa bergeser satu sentimeter pun dari tempatnya. Sorot mata merahnya yang cerdas memandang rendah ke arah genangan darah dan jeritan para Hunter yang sekarat, seolah sedang menyaksikan pertunjukan semut yang sedang binasa.

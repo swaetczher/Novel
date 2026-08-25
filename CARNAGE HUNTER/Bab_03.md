@@ -1,0 +1,109 @@
+Bab 3: Kembali dari Titik Nol
+
+Suara raungan roda gigi pneumatik berkapasitas ribuan ton bergema berat di sepanjang dinding pertahanan berlapis timbal setinggi empat puluh meter yang memagari Ground Zero Gyeonggi. Lampu peringatan kuning berkedip liar saat gerbang karantina utama perlahan terangkat setengah meter dari permukaan tanah, menghembuskan uap dingin bercampur bau ozon cair dan minyak karat ke udara malam yang kelam.
+
+"Patroli pembersihan berkala Sektor Empat dibuka," suara serak dari pengeras suara otomatis pos komando luar berkumandang menembus gerimis. "Tim Patroli Tujuh, waktu operasi empat puluh lima menit. Fokus pada pemindaian perimeter, pengecekan pipa buangan, dan eliminasi anomali tersisa."
+
+Enam prajurit Hunter berbaju zirah eksoskeleton abu-abu kelam melangkah melintasi batas gerbang timbal. Tim ini adalah unit pengintai gabungan yang dipimpin oleh Kapten Patroli Seok-Hoon—seorang Hunter senior dari Regu Titanium yang telah berpengalaman menghadapi ganasnya zona karantina.
+
+"Jaga jarak formasi tiga meter," perintah Kapten Seok-Hoon melalui intercom helmnya. Tangannya mencengkeram erat laras senapan kinetik berkaliber 12.7 milimeter. "Laras senapan di posisi setengah teracung. Jangan pernah meremehkan Sektor Empat meskipun dua minggu lalu area ini dinyatakan *clear* oleh gabungan divisi."
+
+Para prajurit patroli melangkah menyusuri lorong beton pabrik yang ditumbuhi lumut mutasi berpendar hijau redup. Keheningan kota mati yang terisolasi total selama empat belas hari terasa begitu mencekam. Udara basah berbau tembaga cair meresap ke dalam filter visor helm mereka.
+
+Namun, baru dua ratus meter tim patroli melangkah masuk dari gerbang karantina—
+
+*KRAK! BRRR-HAAAK!*
+
+Dari balik reruntuhan jembatan penyeberangan baja yang ambruk, empat ekor Carnage tingkat *Feral* bermutasi cepat melompat menukik dari ketinggian sepuluh meter. Tak hanya itu, di belakang reruntuhan merayap sesosok Carnage tingkat *Chimera* bersisik tulang tebal dengan kelenjar leher yang membengkak berisi cairan asam beracun.
+
+"Penyergapan! Formasi baji bertahan!" teriak Kapten Seok-Hoon.
+
+*DOR! DOR! DOR!*
+
+Laras senapan kinetik 12.7mm memuntahkan kilatan proyektil balistik secara beruntun. Dua ekor Feral di barisan depan tumbang dengan kepala hancur terhantam peluru kaliber berat. Namun, Carnage tingkat Chimera meluncur dengan kecepatan luar biasa menembus asap tembakan. Sabetan ekor tulangnya yang bertanduk keras menghantam pelindung dada seorang prajurit patroli muda bernama Hunter Kang, mementalkan tubuhnya keras-keras ke dinding beton.
+
+*BUM!*
+
+Senapan kinetik Hunter Kang terlepas dari genggamannya. Belum sempat ia bangkit, Carnage Chimera seberat tiga ratus kilogram itu melompat ke atas dadanya. Rahang monster itu membentang lebar sembilan puluh derajat, meneteskan liur asam cair yang melelehkan permukaan zirah dada Hunter Kang.
+
+"Gkh... Kapten! Bantu aku!" jerit Hunter Kang terdesak dalam cengkeraman maut.
+
+"Tahan!" Kapten Seok-Hoon mencoba mengarahkan senapannya untuk menembak rahang Chimera, namun dua ekor Feral tersisa memotong jalur tembakannya dari samping, memaksa tim patroli bertahan dalam pertarungan jarak dekat yang kacau.
+
+Tepat ketika rahang bernanah asam milik Chimera hendak menancap menembus visor helm Hunter Kang—
+
+*SRET!*
+
+Sebuah bayangan melintas di antara remang kabut radiasi dengan kecepatan yang hampir tak tertangkap retina mata manusia biasa.
+
+Tanpa suara dentuman senjata api, tanpa letupan petir, dan tanpa pancaran aura elemen es maupun kabut beku yang mencolok, sesosok pemuda bermantel Kevlar lusuh melangkah di antara reruntuhan beton.
+
+Itu adalah Go Han-Seo.
+
+Han-Seo menarik napas dalam-dalam. Di dalam pembuluh darahnya, sel B1620 purba bekerja penuh melalui teknik *Thermodynamic Suppression*—mengompresi seluruh energi pendinginan absolut tetap berada di dalam jaringan otot internalnya tanpa membiarkan sebutir pun embun beku bocor ke udara luar. Peningkatan fisiknya terkendali sempurna: padat, presisi, namun kasat mata terlihat seperti gerakan fisik Hunter biasa yang sangat terlatih.
+
+*SRET!*
+
+Han-Seo memutar tubuhnya seefisien mungkin. Saat seekor Feral melompat menerjang bahu kanannya dari balik bayangan, cakar tajam monster itu menghantam leher Kevlar Han-Seo.
+
+*BUM! PERCIK!*
+
+Bunga api memercik keras saat cakar Carnage menghantam kulit Han-Seo! Kepadatan molekuler tubuh Han-Seo yang mengeras bagaikan baja padat membuat cakar monster itu retak dan patah seketika. Sementara bagi Han-Seo sendiri, benturan cakar seberat dua ratus kilogram itu terasa seperti sentuhan ringan tanpa rasa sakit sedikit pun.
+
+Insting prediksi anatomi di otaknya bekerja dalam hitungan milidetik. Tanpa perlu menengadah, Han-Seo sudah meramal trajektori semburan asam yang hendak disemburkan dari kelenjar leher Carnage Chimera.
+
+Ia bergeser satu sentimeter ke kiri dengan gerakan tumit yang minim gesekan. Semburan asam beracun menyembur melintasi udara kosong di samping telinganya, menghantam dinding beton di belakangnya hingga meleleh dan mengeluarkan uap seng yang tajam.
+
+Dengan pisau taktis standar di tangan kanannya, Han-Seo mengayunkan pisaunya dengan akselerasi tiga kali lipat kecepatan Hunter biasa.
+
+*SRET-CRACK!*
+
+Ayunannya begitu padat, kuat, dan bertenaga. Bilah pisau taktis standarnya menyabet tepat di celah persendian tulang leher Chimera, memutus serat otot dan saraf utamanya dalam satu garis tebasan bersih tanpa cela.
+
+Daya potong kinetik yang terkompresi membuat kepala Carnage Chimera terpisah dari badannya sebelum monster itu sempat menyadari apa yang terjadi. Tubuh masif Chimera itu roboh terbanting ke semen, mati seketika.
+
+Tanpa menghentikan momentumnya, Han-Seo berbalik cepat. Pisau taktis di tangannya menghujam lurus menembus rongga mata dua ekor Feral tersisa dalam dua gerakan menusuk yang kilat dan presisi.
+
+*BUM! BUM!*
+
+Hanya dalam waktu empat detik, empat ekor Feral dan satu Chimera tewas tergeletak tak bernyawa di lantai beton.
+
+Keheningan total melingkupi lorong Sektor Empat.
+
+Kapten Seok-Hoon dan lima prajurit patroli Titanium berdiri terpaku dengan laras senapan teracung gemetar. Mata mereka melotot tak percaya menatap pemuda yang berdiri di tengah bangkai-bangkai Carnage yang membusuk.
+
+Visor helm Han-Seo yang retak memperlihatkan wajahnya yang tenang. Tidak ada napas memburu, tidak ada keringat dingin, dan tidak ada lagi tanda-tanda penyakit hipotalamus yang dulu melumpuhkannya.
+
+"I-ID biometrik terdeteksi..." suara Hunter Kang di bawah lantai terdengar gemetar saat komunikator dadanya berkedip hijau.
+
+*VERIFIKASI SINYAL: OBS-884 — GO HAN-SEO (REGU OBSIDIAN).*
+
+"Go... Han-Seo?!" Kapten Seok-Hoon terperanjat hebat, matanya menatap tak percaya ke arah layar tablet biometrik di pergelangan tangannya. "Prajurit pelari garis belakang yang terdaftar hilang dua minggu lalu saat gerbang karantina dikunci?!"
+
+"Selamat malam, Kapten," sapa Han-Seo datar, menyarungkan pisau taktisnya kembali ke sabuk paha kanan.
+
+Kapten Seok-Hoon melangkah maju dengan kewaspadaan penuh, laras senapannya masih teracung rendah. "Bagaimana mungkin kau masih hidup di Ground Zero selama dua minggu tanpa zirah eksoskeleton?! Dan... dari mana kau mendapatkan kecepatan, kelincahan, dan kekuatan fisik seperti itu?!"
+
+Han-Seo menatap Kapten Seok-Hoon dengan pandangan mata yang jernih dan tenang. Ia menyampaikan alasan penyamaran yang telah dilatihnya dengan penuh keyakinan:
+
+"Saat gerbang dikunci dua minggu lalu, aku nekat tertinggal karena terdesak oleh sisa Feral di reruntuhan. Dalam situasi antara hidup dan mati, Zat Penguat Permanen Asosiasi di tubuhku yang tadinya lambat... mendadak mekar dan berkembang penuh."
+
+Kapten Seok-Hoon menempelkan alat pemindai biometrik portabel ke arah dada Han-Seo.
+
+*BZZT... PEMINDAIAN BIOMETRIK SELESAI: KEKUATAN FISIK TINGKAT HIGH-DENSITY. TIDAK TERDETEKSI RADIASI MUTASI ANOMALI XN-99.*
+
+Alat pemindai mengonfirmasi bahwa peningkatan fisik Han-Seo adalah reaksi murni dari *Awakening* biologis manusia—seperti halnya para prajurit yang mengalami lonjakan ketahanan selular setelah disuntik serum. Pemindai standar Asosiasi itu sama sekali tidak bisa mendeteksi entitas kosmik purba B1620 yang tersembunyi rapat di dalam pembuluh darah Han-Seo.
+
+Kapten Seok-Hoon menurunkan laras senapannya, menghembuskan napas panjang bercampur takjub dan hormat.
+
+"Penyerapan serum yang mekar terlambat saat situasi survival ekstrem..." gumam Kapten Seok-Hoon. "Kejadian ini sangat jarang, tapi pernah terjadi pada beberapa Hunter senior. Kau bertahan hidup sendirian di kota mati ini selama dua minggu dan berhasil mengalami *Awakening* murni..."
+
+Kapten Seok-Hoon menepuk bahu Han-Seo dengan raut wajah penuh kekaguman.
+
+"Kau bukan lagi pelari garis belakang yang cacat, Han-Seo. Kau adalah penyintas Ground Zero," ujar Kapten Seok-Hoon tegas. "Tim Tujuh, amankan area! Kita kawal prajurit ini kembali ke Pos Komando Utama!"
+
+"Dimengerti, Sir!" seru para prajurit patroli serentak.
+
+Han-Seo melangkah di tengah pengawalan tim patroli, berjalan menembus pintu gerbang timbal setinggi empat puluh meter yang terbuka menganga.
+
+Dua minggu isolasi di kota mati telah berakhir. Sang pelari yang nekat tertinggal atas kemauannya sendiri kini melangkah kembali ke peradaban—siap untuk kembali dan mengejutkan seluruh pimpinan Regu Obsidian serta Asosiasi Hunter di bumi.
