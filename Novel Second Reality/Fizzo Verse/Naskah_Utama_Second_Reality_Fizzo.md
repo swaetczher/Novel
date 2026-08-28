@@ -8255,7 +8255,7 @@ Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung d
 
 Min-ho juga memasang helm taktisnya dengan cepat, menyesuaikan posisi pelindung telinga dan mikrofon komunikasi nirkabel.
 
-Menteri Pertahanan mengonfirmasi bahwa kontak militer perbatasan di darat telah bersiap di zona penerjunan hutan bambu.
+Menteri Pertahanan mengonfirmasi bahwa Tawan dan jaringan lokal ORCA di Thailand telah bersiap di zona penerjunan hutan bambu.
 
 Mereka telah menyembunyikan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di bawah terpal penyamar.
 

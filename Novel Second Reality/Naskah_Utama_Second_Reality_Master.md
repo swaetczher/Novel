@@ -5766,7 +5766,7 @@ Ryu Jin, Shin-woo, dan Min-ho melangkah cepat menaiki tangga jet siluman tersebu
 
 Ryu Jin, Han Shin-woo, dan Choi Min-ho segera mengenakan baju anti peluru hitam tebal yang disediakan. Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka, memberikan perlindungan maksimal tanpa mengurangi mobilitas gerak secara drastis. Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya.
 
-Menteri Pertahanan mengonfirmasi bahwa kontak militer perbatasan telah mempersiapkan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di titik pendaratan hutan bambu, tersembunyi dengan rapi di bawah terpal penyamar. Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
+Menteri Pertahanan mengonfirmasi bahwa Tawan bersama jaringan lokal ORCA di Thailand telah mempersiapkan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di titik pendaratan hutan bambu, tersembunyi dengan rapi di bawah terpal penyamar. Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
 
 "Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya. Sejak menyadari musuh utama mereka adalah sindikat Yakuza Kurokawa di Tokyo, Shin-woo mulai melatih diri menggunakan senjata tradisional Jepang tersebut, menggantikan pisau karambit dan belati lempar lamanya untuk persiapan taktis menyeberang ke Jepang.
 
@@ -5826,7 +5826,7 @@ Dari arah lembah yang berjarak sekitar dua kilometer, gema dentuman meriam morta
 DUMM! DUMM! DUMM!
 "Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air. "Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding semen benteng ORCA akan jebol sebelum fajar."
 
-Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh kontak militer perbatasan. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
+Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh Tawan dan jaringan lokal ORCA. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
 
 *
 
