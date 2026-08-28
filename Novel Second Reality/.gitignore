@@ -2,3 +2,5 @@
 ~$*
 *.tmp
 *.temp
+# Local chat history (private)
+Riwayat_Percakapan_Second_Reality.txt
