@@ -5728,7 +5728,7 @@ Ryu Jin menyipitkan matanya. "Berapa lama mereka bisa bertahan?"
 
 "Sepupuku memperkirakan gerbang luar benteng bisa runtuh dalam waktu dua puluh empat jam jika dihantam mortir kartel," balas Tae-gyu cemas. "Kalian butuh waktu tiga hari jika menggunakan kapal laut cepat penyelundup. Warga sipil di dalam benteng tidak akan selamat."
 
-"Tetapi ada jalan keluar," lanjut Tae-gyu. "Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan (Menteri Pertahanan). Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang. Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju perbatasan Thailand malam ini."
+"Tetapi ada jalan keluar," lanjut Tae-gyu. "Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan. Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang. Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju perbatasan Thailand malam ini."
 
 "Menteri juga telah menyiapkan perlengkapan taktis lengkap seperti baju anti peluru dan persenjataan militer di dalam jet tersebut," tambah Tae-gyu.
 
