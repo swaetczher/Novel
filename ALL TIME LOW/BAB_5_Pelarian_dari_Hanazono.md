@@ -52,7 +52,7 @@ Suara benturan nyaring bergema di udara! Sebuah bola baseball padat yang dipukul
 
 "Dua di kanan!" seru Daiki sambil melambungkan bola baseball berikutnya ke udara.
 
-Renjiro bergerak kilat bagaikan bayangan. Dengan kelincahan fisik dan reflek bertarungnya yang luar biasa, Renjiro melompati badan zombie yang tumbang, mengayunkan stik golf baja di tangan kanannya menepis cakar musuh di kanan, lalu stik golf di tangan kirinya bergerak memutar menghantam leher lawan.
+Renjiro bergerak kilat bagaikan bayangan. Dengan kelincahan fisik dan refleks bertarungnya yang luar biasa, Renjiro melompati badan zombie yang tumbang, mengayunkan stik golf baja di tangan kanannya menepis cakar musuh di kanan, lalu stik golf di tangan kirinya bergerak memutar menghantam leher lawan.
 
 *KTAK!*
 

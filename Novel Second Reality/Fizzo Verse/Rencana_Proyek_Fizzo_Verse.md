@@ -34,6 +34,13 @@
 
 ## 🏛️ LORE BIBLE & ATURAN KARAKTER SECOND REALITY
 
+### 0. Kanon Kontinuitas
+- Pada awal cerita, Ryu Jin, Kang Dojin, dan Han Shin-woo berusia **19 tahun**; Choi Min-ho berusia **22 tahun**.
+- Setelah lompatan waktu satu tahun, usia mereka menjadi **20, 20, 20, dan 23 tahun**.
+- Tawan adalah putra Tetua Desa Phra Khann. Pemimpin Kartel Black Ant bernama **Krao**.
+- Kwon Hyeok-tae tidak berada di Zenith Tower; ia baru ditemukan dan dieksekusi di bunker Galangan Baja Daechang.
+- Jika naskah sumber lama bertentangan dengan bagian ini, gunakan kanon ini.
+
 ### 1. Linimasa Flashback
 - Kejatuhan *Ryu Energy Group* dan pembantaian *Genryu-kai* (Bos Takamori) terjadi **5 Tahun Lalu** (5 years ago).
 

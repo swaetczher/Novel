@@ -44,9 +44,9 @@ Paman Kagemitsu menatap ketiga pemuda itu dengan tatapan mata yang berkilat tega
 
 "Ambil apa pun yang kalian butuhkan!" seru Paman Kagemitsu lantang. "Kalian tahu cara bertarung! Jangan biarkan monster-monster terkutuk itu menodai tempat ini!"
 
-Mata Renjiro, Daiki, dan Kazuki berkilat tajam. Momen yang mereka nantikan akhirnya tiba.
+Mata Renjiro, Daiki, dan Kazuki berkilat tajam. Kagemitsu membuka lemari itu bukan karena kebetulan menyimpan perlengkapan yang tepat. Selama bertahun-tahun ia menerima pesanan perlengkapan aksi dari rumah produksi film dan kelompok pemeraga sejarah. Beberapa benda di dalamnya adalah hasil modifikasinya sendiri, dibuat agar kuat tetapi tetap dapat digunakan bergerak.
 
-Renjiro melepaskan kedua stik golf bajanya ke lantai, membiarkan logam itu berdentang jatuh. Kedua tangannya terulur meraih dua bilah Katana Baja Tamahagane Hitam kembar yang memiliki ukiran naga di gagangnya. Renjiro menarik kedua pedang itu dari sarungnya secara serempak.
+Renjiro melepaskan kedua stik golf bajanya ke lantai. Kedua tangannya meraih sepasang katana tamahagane berlapis hitam dengan ukiran naga di gagang—pesanan seorang kolektor yang belum sempat dikirim sebelum wabah. Renjiro menarik kedua pedang itu dari sarungnya secara serempak.
 
 SRIIING!
 
@@ -54,7 +54,7 @@ Kilatan baja hitam yang sangat tajam dan presisi memantulkan cahaya lampu minyak
 
 Di sisi kiri, Daiki meletakkan stik baseball kayunya dan menyambar sebuah Busur Komposit Taktis (Composite Bow) berwarna hitam pekat yang memiliki daya pegas luar biasa. Daiki mengaitkan tabung anak panah (quiver) berisi puluhan anak panah berujung baja runcing di punggungnya, lalu menyelipkan sepasang Nunchaku berantai baja tempa di sisi pinggangnya.
 
-Sementara itu, Kazuki melepaskan ikatan bantalan busa Taekwondo-nya yang sudah robek. Matanya tertuju pada sebuah Wajan Besi Tempa Hitam Tebal (Heavy Iron Wok Shield) berdiameter besar yang telah dimodifikasi dengan tali kulit pengikat ganda di bagian belakangnya. Kazuki mengikatkan wajan baja tebal itu di lengan kirinya sebagai tameng penabrak yang sangat masif, lalu memasang sepasang Buku Jari Berduri (Knuckle Dusters) berbahan baja padat di atas sarung tinju MMA kulit hitam yang melapisi tangannya.
+Sementara itu, Kazuki melepaskan bantalan Taekwondo yang sudah robek. Matanya tertuju pada wajan besi tempa tebal berdiameter besar yang telah diberi tali kulit ganda. Kagemitsu pernah mengubahnya menjadi properti tameng untuk sebuah film laga sejarah; pegangannya diperkuat agar mampu menerima benturan berulang. Kazuki mengikatkannya di lengan kiri, lalu memasang sepasang buku jari berduri di atas sarung tinju MMA.
 
 Ketiganya kini telah bersiap penuh menyambut pertempuran.
 

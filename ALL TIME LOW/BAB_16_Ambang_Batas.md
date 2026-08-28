@@ -56,7 +56,7 @@ DUB! DUB! DUB!
 
 Kepala zombie itu hancur, melepaskan cengkeramannya dari bahu Kazuki sebelum ambruk ke tanah.
 
-"Baju mahal Han Jae-Shin tidak ada apa-apanya dibandingkan pelindung bahu ini! Ini satu-satunya seragam olahraga keberuntunganku!" gerutu Kazuki napasnya memburu cepat di samping Daiki yang baru bangkit berdiri.
+"Pelindung ini menemaniku sejak pertandingan terakhir di Hanazono! Ini satu-satunya seragam olahraga keberuntunganku!" gerutu Kazuki dengan napas memburu di samping Daiki yang baru bangkit berdiri.
 
 "Setidaknya kepalamu masih menempel pada lehermu, Kazuki! Berhentilah mengeluhkan baju olahraga itu!" balas Daiki setengah berteriak sembari menyambar busurnya kembali.
 
@@ -98,7 +98,7 @@ Layar monitor tersebut berkedip memunculkan pesan transmisi radio terenkripsi ya
 > **KONEKSI AKTIF: KOMANDAN JSDF PANGKALAN TACHIKAWA**
 > **PESAN: UJI COBA LAPANGAN SERI-GT SELESAI. PROTOKOL PEMBERSIHAN AREA AKTIF.**
 
-Renjiro mengepalkan tangannya di atas kemudi hingga buku jarinya memutih. "Militer di Tachikawa... mereka bekerja sama dengan Gen-Tech sejak awal. Evakuasi itu hanya umpan."
+Renjiro mengepalkan tangan di atas kemudi. "Ada komandan di Tachikawa yang bekerja sama dengan Gen-Tech. Kita belum tahu berapa banyak orang yang terlibat atau apakah pasukan lain mengetahuinya."
 
 Tiba-tiba, speaker radio di dasbor van mengeluarkan suara statis berisik disusul oleh suara panggilan panik dari operator militer:
 
@@ -109,3 +109,5 @@ Suara tembakan senapan mesin berat dan ledakan darurat terdengar jelas melatarbe
 Renjiro menatap jalanan kosong di depannya dengan pandangan mata yang menyempit tajam.
 
 Pangkalan Tachikawa—tempat tujuan mereka untuk menyelamatkan keluarga—saat ini sedang berubah menjadi neraka pembantaian yang baru.
+
+Dan mereka masih bergerak menuju pusatnya tanpa mengetahui siapa yang akan menyambut mereka sebagai penyintas atau sasaran.

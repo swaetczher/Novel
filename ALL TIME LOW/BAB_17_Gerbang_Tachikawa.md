@@ -6,11 +6,11 @@ VRRRMMMM!
 
 Van taktis lapis baja Gen-Tech itu melaju kencang membelah kabut fajar di jalanan Tokyo Barat. Renjiro menekan pedal gas dalam-dalam, mengabaikan guncangan keras saat ban-ban besar van melindas serpihan kaca, puing-puing mobil sipil, dan bangkai-bangkai yang hancur di sepanjang jalan menuju Pangkalan Udara Tachikawa.
 
-Di kabin belakang, Daiki sibuk menekan luka goresan di bahu Kazuki menggunakan sobekan kain bersih dari dalam van. Kazuki meringis lebar, gigi-giginya bergemeletuk rapat menahan perih yang menyengat sarafnya.
+Di kabin belakang, Daiki membuka pelindung bahu Kazuki dan menyinari kulitnya. Yang terlihat hanyalah goresan dangkal akibat pecahan plastik dari pelindung, bukan bekas gigi. Ia membilas luka dengan cairan steril dari kotak medis van, memeriksa apakah ada noda hitam, lalu menutupnya menggunakan kasa baru. Kain dan pelindung yang tercemar dimasukkan ke kantong limbah biologis.
 
 "Daiki, pelan-pelan sedikit! Kau sedang mengobati lukaku atau mencoba menato bahuku tanpa tinta?" keluh Kazuki dengan wajah berkerut menahan sakit.
 
-"Jika aku ingin menatomu, Kazuki, aku akan menggambar wajan besi besar di bahumu," sahut Daiki datar. Tangannya tetap menekan kain dengan erat untuk menghentikan aliran darah. "Sekarang diamlah. Ini satu-satunya cara agar darah hitam zombie tadi tidak merembes ke luka terbukamu. Kau tidak mau berubah menjadi salah satu dari mereka, kan?"
+"Jika aku ingin menatomu, Kazuki, aku akan menggambar wajan besi besar di bahumu," sahut Daiki datar. "Tidak ada darah hitam di lukanya, tetapi kita tetap mengawasinya. Kalau demam, mati rasa, atau pembuluh di sekitar luka menggelap, katakan segera."
 
 "Setidaknya kita naik mobil yang memiliki kursi kulit empuk sekarang," celetuk Kazuki seraya menatap interior van Gen-Tech yang canggih. "Meskipun aku lebih suka masuk ke pangkalan militer sebagai pahlawan yang disambut hangat, bukan menaiki kendaraan musuh seperti kelompok kriminal yang sedang buron."
 
@@ -68,11 +68,13 @@ Namun, Renjiro tidak memedulikan moncong senjata yang mengarah kepadanya. Pandan
 
 Keadaan di dalam pangkalan udara ini jauh dari kata aman. Ratusan pengungsi sipil berkumpul di dalam hanggar pesawat dengan wajah ketakutan, dikelilingi oleh penjagaan ketat militer yang panik. Namun, di landasan pacu yang luas di depan hanggar, perhatian Renjiro tertuju pada sebuah pesawat kargo militer C-130 Hercules yang mesinnya sudah meraung keras siap lepas landas.
 
-Beberapa tentara JSDF dan staf berjas hitam tidak sibuk mengevakuasi warga sipil ke dalam pesawat. Sebaliknya, mereka sedang terburu-buru memasukkan beberapa peti besi besar berlapis baja yang memiliki logo heliks ganda perak Gen-Tech Corporation ke dalam kabin kargo pesawat.
+Sekelompok tentara JSDF dan staf berjas hitam tidak sibuk mengevakuasi warga. Mereka memasukkan peti berlapis baja berlogo heliks ganda Gen-Tech ke dalam kabin kargo. Di sisi lain landasan, prajurit-prajurit biasa tetap menahan gerbang dan menuntun pengungsi ke hanggar. Perbedaan itu membuat satu hal jelas: bukan seluruh JSDF berkhianat, melainkan suatu kelompok dalam rantai komando telah memberi Gen-Tech prioritas khusus.
 
-Renjiro mengepalkan tangannya di atas gagang pedang. Firasat buruknya terbukti. Militer di pangkalan ini memprioritaskan penyelamatan data dan spesimen Gen-Tech daripada nyawa warga sipil yang ketakutan di hanggar.
+Renjiro mengepalkan tangan di atas gagang pedang. Firasat buruknya terbukti. Orang-orang yang mengendalikan pesawat itu memprioritaskan data dan spesimen Gen-Tech daripada warga di hanggar.
 
-Tiba-tiba, suara ledakan maha dahsyat mengguncang landasan pacu pangkalan udara.
+Salah satu peti bergetar dari dalam. Lampu indikatornya berubah dari hijau menjadi merah. Seorang teknisi Gen-Tech berteriak meminta pesawat dihentikan, tetapi perwira di dekat tangga kargo memaksanya tetap diberangkatkan. Tentakel hitam setipis kabel menembus sambungan peti, lalu menghunjam lantai kabin hingga merobek saluran bahan bakar di bawahnya. Alarm tekanan pada badan pesawat langsung meraung.
+
+Tiga detik kemudian, hantaman dari dalam merobek pengunci peti. Percikan dari rel pengikat kargo mengenai bahan bakar yang bocor, dan ledakan dahsyat mengguncang landasan pacu.
 
 DHOOMMM!
 
@@ -84,4 +86,6 @@ Di tengah kobaran api yang membakar bangkai pesawat C-130, sesosok bayangan raks
 
 Makhluk itu berjalan keluar dari dalam api dengan langkah lambat namun pasti. Tubuhnya tidak terbakar oleh bahan bakar pesawat yang menyala merah di sekelilingnya. Penampilannya jauh lebih mengerikan daripada GT-ALPHA yang mereka lawan di lab bawah tanah. 
 
-Makhluk berukuran tinggi hampir empat meter itu memiliki pundak yang dipenuhi oleh tentakel-tentakel hitam tebal yang bergerak liar layaknya ular. Tubuhnya yang bengkak kaku diselimuti sisa jas lab putih yang sebagian telah meleleh dan menyatu dengan jaringan dagingnya yang membusuk hitam. Sepasang mata merah menyalanya berkedip sekali, lalu menatap lurus ke arah hanggar tempat berkumpulnya ratusan pengungsi sipil. Tempat di mana orang tua dan keluarga Renjiro, Daiki, dan Kazuki sedang menunggu keselamatan mereka.
+Makhluk setinggi hampir empat meter itu memiliki tentakel-tentakel hitam tebal yang bergerak dari pundaknya. Tubuhnya diselimuti sisa jas laboratorium putih yang meleleh dan menyatu dengan jaringan daging. Pada dadanya masih tergantung kartu identitas Gen-Tech yang hangus, petunjuk bahwa ia pernah menjadi manusia di fasilitas penelitian, bukan mutan yang muncul tanpa asal.
+
+Sepasang mata merahnya berkedip, lalu menatap lurus ke arah hanggar tempat ratusan pengungsi berkumpul. Renjiro belum tahu apakah keluarganya benar-benar berada di dalam sana. Namun, selama kemungkinan itu masih ada, ia tidak akan membiarkan makhluk tersebut mencapai pintu hanggar.

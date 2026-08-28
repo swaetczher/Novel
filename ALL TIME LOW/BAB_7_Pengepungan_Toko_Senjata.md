@@ -38,6 +38,10 @@ Renjiro mengepalkan gagang stik golf bajanya, menganalisis situasi dengan kepala
 
 "Terus bagaimana rencananya, Ren?" tanya Daiki sambil merogoh dua bola baseball padat dari saku jaketnya.
 
+Renjiro tidak langsung menjawab. Ia mengamati arah angin, pintu samping, dan gang sempit yang dapat menjadi jalur mundur. Setelah pertemuan dengan monster ikan, ia tidak lagi menganggap tubuh kuat mereka sebagai jaminan. Satu cakaran, satu tetes cairan ke luka terbuka, atau satu jalan keluar yang tertutup dapat mengakhiri semuanya.
+
+"Kalau pintu samping tidak dibuka dalam sepuluh detik, kita mundur lewat gang utara," katanya. "Jangan mengejar zombie yang terpancing. Kita datang untuk menyelamatkan orang di dalam, bukan membuktikan siapa paling kuat."
+
 "Kita bagi perhatian mereka," ujar Renjiro, seringai dingin yang penuh taktik terukir di wajahnya. "Daiki, kau manfaatkan bola baseballmu dari atas kap truk. Pukul bola itu menghantam mobil polisi yang rusak di ujung persimpangan sana. Suara benturan kerasnya akan memancing dan memecah konsentrasi separuh gerombolan zombie."
 
 Renjiro melirik ke arah pintu kayu sekunder di samping toko yang tampak relatif lebih sepi dari kepungan zombie.
@@ -78,10 +82,24 @@ Dua zombie tumbang bersimbah darah hitam di atas ubin trotoar. Daiki yang melomp
 
 *PAK!*
 
-Zombie kelima roboh tak bernyawa. Dalam waktu kurang dari satu menit, area di sekitar pintu kayu samping toko senjata telah bersih dari monster!
+Zombie kelima roboh, tetapi stik Daiki retak memanjang pada bagian tengah. Kazuki pun kehilangan keseimbangan setelah menabrak dua lawan sekaligus. Lututnya menghantam ubin dan salah satu kuku zombie sempat menggores pelindung bahunya sebelum Renjiro menariknya menjauh.
+
+"Kulitmu?" tanya Renjiro cepat.
+
+Kazuki meraba bagian di balik pelindung. "Tidak tembus. Hanya busanya yang sobek."
+
+Mereka tidak memiliki waktu untuk merasa menang. Sirene di ujung jalan masih meraung, tetapi beberapa zombie yang semula mengejarnya sudah mulai berhenti dan menoleh kembali. Tipuan suara mereka hanya membeli waktu, bukan menghapus ancaman.
+
+Dalam waktu kurang dari satu menit, area di sekitar pintu kayu samping toko senjata telah bersih, sementara belasan monster lain mulai berbalik menuju mereka.
 
 Renjiro menghentakkan gagang stik golf bajanya ke pintu kayu samping dengan irama tiga kali ketukan terkontrol. 
 
 "Kami manusia hidup! Buka pintu sampingnya!" seru Renjiro dengan suara tegas namun berbisik rapat.
 
-Dari balik pintu kayu sekunder yang terkunci palang tebal, suara derak selot besi terdengar bergeser pelan. Pintu kayu samping toko senjata tradisional itu terbuka sedikit, memperlihatkan sorotan mata seorang penyintas dari dalam kegelapan.
+Dari balik pintu kayu sekunder yang terkunci palang tebal, tidak ada jawaban selama beberapa detik. Renjiro melirik gerombolan yang berbalik mendekat. Jarak mereka tinggal sekitar empat puluh meter.
+
+"Renjiro Tachibana!" serunya sekali lagi. "Paman Kagemitsu, kalau itu Paman, buka sekarang!"
+
+Barulah suara derak selot besi terdengar bergeser. Pintu kayu itu terbuka sedikit, memperlihatkan sorotan mata seorang penyintas dari dalam kegelapan. Renjiro mendorong Daiki dan Kazuki masuk lebih dahulu. Sesaat setelah tubuhnya sendiri melewati ambang, cakar zombie menghantam daun pintu dari luar.
+
+Mereka bertiga menahan pintu bersama-sama hingga palang kembali terpasang. Benturan pertama mengguncang seluruh kusen dan menjatuhkan debu dari langit-langit. Mereka berhasil masuk, tetapi pengepungan belum berakhir.

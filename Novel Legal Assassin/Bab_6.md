@@ -6,86 +6,100 @@ Sinar matahari pagi yang dingin menembus jendela kaca tinggi Ruang Sidang Utama 
 
 Puluhan wartawan media nasional dan kamera televisi berita nasional memadati bangku belakang. Di seberang meja pengacara, Kang Min-Seok berdiri dengan kemeja rapi dan raut muka heran yang tak sanggup disembunyikan.
 
-Pengacara senior berotak licik dari Firma Hukum Taesan itu sama sekali tidak mengerti apa yang sedang terjadi. Secara mendadak pada pukul enam pagi tadi, Pengadilan Distrik Pusat Seoul menerbitkan *Disposisi Peninjauan Bukti Baru (Re-examination Order of Emergency Forensic Evidence)*. Hakim Agung Park secara pribadi membatalkan putusan penolakan minggu lalu dan membuka Sidang Banding Istimewa Darurat pagi ini.
+Pengacara senior dari Firma Hukum Taesan itu tidak mengerti apa yang sedang terjadi. Pukul enam pagi, Ketua Majelis Park mengungkap konflik kepentingan, menyerahkan komunikasinya kepada penyidik, lalu mengundurkan diri dari perkara. Pengadilan segera membentuk majelis pengganti yang dipimpin Hakim Seo Mi-ran untuk menilai bukti baru dan risiko pemindahan aset.
 
-"Apa yang sebenarnya terjadi pada Hakim Park?" bisik Kang Min-Seok panik pada asisten hukum di sebelahnya. "Kenapa dia mendadak membuka sidang ulang tanpa memberitahu Taesan terlebih dahulu?"
+"Apa yang terjadi pada Hakim Park?" bisik Kang Min-Seok kepada asistennya. "Mengapa dia mengundurkan diri tanpa memberi tahu Taesan, dan siapa yang menyerahkan bukti baru itu?"
 
-Di meja pengacara penggugat, Han Yoo-Jin berdiri tegap dengan jas biru navy yang sangat presisi. Penampilannya tampak sangat cool, tampan, dan tenang. Di sampingnya, Han Jae-Shin duduk santai menyilangkan satu kaki seraya memutar-mutar bolpoin tebal mewah berkilap hitamnya. 
+Di meja pemohon, Han Yoo-Jin berdiri tegap dengan jas biru navy yang rapi. Di sampingnya, Han Jae-Shin duduk santai dengan satu kaki bersilang sambil memutar bolpoin hitamnya.
 
-Di bangku penonton paling depan, Han Chae-Eun mengamati jalannya sidang dengan cermat, wajahnya sudah kembali segar pasca insiden mual semalam.
+Di bangku penonton paling depan, Han Chae-Eun mengamati jalannya sidang. Wajahnya sudah kembali segar setelah insiden mual semalam.
 
 *TAK!*
 
-Hakim Agung Park mengetukkan palu pengadilan dengan tangan yang terlihat gemetar halus. Pria berusia lima puluh delapan tahun itu duduk di mimbar tengah dengan wajah sangat pucat dan lingkaran hitam tebal di bawah matanya. 
+Ketua Majelis Seo mengetukkan palu. Perempuan berusia lima puluh satu tahun itu dikenal keras terhadap pelanggaran prosedur dan tidak memiliki hubungan dengan Taesan maupun Pharma-Corp.
 
-Semalam adalah neraka tergelap dalam hidup Hakim Park. Di satu sisi, meminum satu liter air limbah kimia dioksin murni yang dikirim Aegis akan menghancurkan organ dalamnya dalam siksaan yang merayap. Di sisi lain, mencabut paksa serangga drone mikro yang menempel di organ intimnya akan memicu suntikan ganas virus HIV dan penyakit kelamin yang menghancurkan seluruh hidupnya.
+Ketika sidang dimulai, Park berada di ruang pemeriksaan kejaksaan. Rekening luar negeri dan percakapannya dengan Min-Seok telah disita. Aegis berhasil memaksanya membuka pintu, tetapi keputusan pagi itu berada di tangan majelis yang tidak mereka kendalikan.
 
-Satu-satunya pilihan paling rasional baginya untuk selamat adalah **Pilihan Pertama**: Membuka sidang ulang dan memenangkan Firma Hukum Aegis atas bukti kuat yang mereka miliki!
+Artinya, Yoo-Jin tetap harus memenangkan permohonan melalui bukti. Tidak ada ancaman yang dapat menggantikan kelemahan dalam rantai penguasaan sampel atau autentikasi dokumen keuangan.
 
-Hakim Park berdeham keras, mencoba menutupi kegelisahan psikologisnya.
+Hakim Seo memeriksa daftar bukti, lalu memberi isyarat kepada panitera.
 
-"Sidang Banding Istimewa Kasus Pidana No. 2025-Go-9102 resmi dibuka," suara Hakim Park terdengar agak serak, namun berusaha dibuat sebisa mungkin logis secara hukum. "Berdasarkan evaluasi internal Majelis Hakim dan temuan awal rekayasa data laboratorium, Pengadilan Distrik Pusat Seoul memandang perlu dilakukan uji ulang forensik secara menyeluruh demi menjaga integritas peradilan."
+Di belakang Yoo-Jin, tiga perwakilan keluarga korban duduk sambil menggenggam foto anak-anak mereka. Kehadiran mereka tidak boleh mengubah ukuran pembuktian, tetapi mengingatkan semua orang bahwa sengketa itu bukan sekadar perebutan angka. Setiap hari penundaan berarti tagihan pengobatan bertambah, sementara Pharma-Corp masih dapat memindahkan aset yang kelak dibutuhkan untuk membayar pemulihan lingkungan.
 
-Kang Min-Seok terbelalak kaget. "Yang Mulia! Keberatan! Keputusan penolakan gugatan kemarin sudah sah secara hukum! Pengacara Penggugat tidak memiliki hak—"
+"Pemeriksaan ulang darurat Perkara Lingkungan No. 2025-Gahap-9102 resmi dibuka," ujar Hakim Seo. "Majelis akan menilai bukti baru yang berkaitan dengan rantai penguasaan sampel, risiko pemindahan aset, dan dugaan manipulasi pemeriksaan laboratorium."
 
-"Keberatan ditolak, Pengacara Kang!" potong Hakim Park tegas, menyela ucapan Min-Seok tanpa keraguan sedikit pun. "Pengadilan memegang wewenang penuh atas diskresi bukti darurat!"
+Kang Min-Seok terbelalak. "Yang Mulia! Keberatan! Penolakan permohonan sita minggu lalu sudah dibacakan. Pemohon tidak berhak—"
 
-Hakim Park mengalihkan pandangannya ke meja penggugat, sengaja menghindari tatapan mata Jae-Shin yang tersenyum culas seraya menekan cetrekan bolpoin tebalnya.
+"Keberatan ditolak, Pengacara Kang," potong Hakim Seo. "Penolakan terdahulu tidak menutup pengajuan baru apabila terdapat bukti terverifikasi dan risiko aset dipindahkan sebelum putusan akhir."
 
-"Pengacara Penggugat, Han Yoo-Jin," panggil Hakim Park dengan nada menuntut yang kooperatif. "Silakan ajukan bukti pembanding Anda ke hadapan Majelis Hakim."
+Hakim Seo mengalihkan pandangannya ke meja pemohon tanpa menunjukkan reaksi terhadap Jae-Shin.
 
-Yoo-Jin membetulkan letak kacamata tipisnya dengan gerakan yang sangat cool dan tenang. Ia melangkah tegap menuju mimbar hakim membawa satu kaset dokumen tebal bersampul merah dan sebuah *flashdisk* enkripsi.
+"Kuasa pemohon, Han Yoo-Jin," panggil Hakim Seo. "Silakan ajukan bukti pembanding kepada majelis."
 
-"Terima kasih, Yang Mulia," suara Yoo-Jin menggelegar tenang dan jernih. "Dokumen yang kami serahkan hari ini memuat data analisis spektrometri massa dari muara sungai Incheon yang diawasi langsung oleh dua peneliti forensik independen kami, Senior Park Seung-Gyu dan Choi Sung-Hoon."
+Yoo-Jin membetulkan letak kacamatanya, lalu berjalan menuju meja barang bukti dengan map tebal bersampul merah dan perangkat penyimpanan USB terenkripsi.
 
-Yoo-Jin menyambungkan *flashdisk* tersebut ke sistem proyektor pengadilan. Layar besar di dinding pengadilan langsung menampilkan bagan grafik tingkat racun dioksin dan logam berat yang melonjak hingga 400% tepat di muara buangan limbah pabrik Pharma-Corp.
+Setelah penolakan minggu lalu, Aegis tidak sekadar mengajukan laporan yang sama. Seung-Gyu dan Sung-Hoon kembali ke Incheon bersama petugas pengadilan, perwakilan warga, dan pengawas dari pihak Pharma-Corp. Mereka mengambil sampel pada enam titik, menyegelnya dengan nomor berbeda, lalu mengirimkannya ke dua laboratorium terakreditasi tanpa mencantumkan asal sampel.
 
-"Tidak hanya itu," lanjut Yoo-Jin seraya melirik dingin ke arah tiga saksi ahli berjas hitam dari pihak Pharma-Corp. "Kami juga melampirkan jejak transaksi rekening rahasia Cayman Islands milik saksi ahli Pihak Tergugat, di mana masing-masing dari mereka menerima kucuran dana 'insentif' sebesar dua ratus juta Won satu hari sebelum sidang pertama digelar!"
+Kedua laboratorium menghasilkan pola yang sama. Konsentrasi tertinggi muncul pada saluran buangan pabrik dan menurun semakin jauh dari lokasi tersebut. Catatan suhu, waktu pengambilan, identitas pembawa, serta perpindahan segel tercatat tanpa celah.
+
+Min-Jae juga tidak menyerahkan hasil peretasan mentah sebagai bukti. Ia menggunakan temuan digital hanya sebagai petunjuk agar Yoo-Jin meminta dokumen melalui jalur resmi. Dengan begitu, pihak Taesan tidak dapat menggugurkan perkara hanya karena sumber bukti diperoleh secara melawan hukum.
+
+"Terima kasih, Yang Mulia," ujar Yoo-Jin. "Dokumen ini memuat analisis spektrometri massa dari dua laboratorium terakreditasi. Pengambilan sampel disaksikan petugas pengadilan, sedangkan rantai penguasaannya dicatat sejak lokasi hingga ruang pemeriksaan."
+
+Yoo-Jin menyambungkan perangkat penyimpanan USB tersebut ke sistem proyektor pengadilan. Layar besar menampilkan grafik konsentrasi dioksin dan logam berat yang mencapai empat kali ambang aman tepat di muara pembuangan limbah Pharma-Corp.
+
+"Tidak hanya itu," lanjut Yoo-Jin sambil menatap tiga ahli dari pihak Pharma-Corp. "Kami melampirkan transaksi rekening luar negeri yang menunjukkan bahwa masing-masing menerima dana dua ratus juta won sehari sebelum sidang pertama."
 
 *Brummm!*
 
-Suasana ruang sidang seketika gempar! Wartawan langsung mengetikkan berita secara histeris, sementara kilatan lampu kamera mengambil gambar wajah tiga saksi ahli yang mendadak pucat pasi.
+Suasana ruang sidang seketika gempar! Wartawan langsung mengetikkan berita secara histeris, sementara kilatan lampu kamera mengambil gambar wajah tiga saksi ahli yang mendadak pucat.
 
 Kang Min-Seok memukul mejanya keras-keras. "I-Ini fitnah! Dokumen perbankan itu tidak bisa dibuktikan keabsahannya!"
 
-"Dokumen perbankan tersebut diverifikasi langsung oleh otoritas pengawas keuangan internasional dan Badan Siber Nasional!" potong Yoo-Jin tajam tanpa memberi ruang sedikit pun bagi Min-Seok untuk berkali.
+"Catatan perbankan itu telah dicocokkan oleh Unit Intelijen Keuangan dan disertai surat autentikasi dari bank pengirim," potong Yoo-Jin tanpa memberi ruang bagi Min-Seok untuk mengaburkan persoalan.
 
-Hakim Park menatap layar proyektor dengan deru napas ketakutan. Bukti yang disodorkan Yoo-Jin begitu sempurna, rapat, dan tanpa celah sedikit pun. Bahkan tanpa ancaman drone Aegis semalam, bukti forensik dan aliran suap ini sudah lebih dari cukup untuk meruntuhkan posisi Pharma-Corp secara mutlak.
+Hakim Seo menatap layar proyektor. Bukti Yoo-Jin tidak otomatis memenangkan pokok perkara, tetapi cukup kuat untuk menunjukkan risiko manipulasi dan pemindahan aset. Untuk sebuah penetapan sementara, ambang pembuktiannya telah terpenuhi.
 
-Hakim Park mengetukkan palunya keras-keras untuk menenangkan ruangan.
+Hakim Seo mengetukkan palu untuk menenangkan ruangan.
 
 *TAK! TAK!*
 
-"Hening di dalam ruang sidang!" gertak Hakim Park. Matanya melirik sejenak ke arah Jae-Shin. Bos Firma Aegis itu menyandarkan punggungnya di kursi, mengedipkan sebelah matanya seraya memutar bolpoin tebalnya dengan irama lambat yang mengintimidasi.
+"Hening di dalam ruang sidang!" tegas Hakim Seo. Ia membaca seluruh halaman autentikasi tanpa sekali pun mencari persetujuan dari kedua pihak.
 
-Hakim Park meneguk ludahnya yang terasa pahit. Ia membetulkan posisi jubah hakinya, mengumpulkan seluruh sisa wibawanya, lalu membaca lembaran putusan yang telah ia susun.
+Hakim Seo menutup berkas autentikasi, lalu membacakan pertimbangan majelis.
 
-"Menimbang bahwa bukti pembanding Pihak Penggugat terbukti sah, ilmiah, dan tidak dapat dibantah... serta ditemukannya indikasi tindak pidana suap dan manipulasi bukti forensik oleh Pihak Tergugat..."
+"Menimbang bahwa bukti pembanding pemohon telah diautentikasi untuk tahap pemeriksaan darurat, serta terdapat indikasi suap dan manipulasi bukti oleh pihak termohon..."
 
-Hakim Park mengangkat palu kayu di tangan kanannya.
+Hakim Seo mengangkat palu kayu di tangan kanannya.
 
 "...Maka Majelis Hakim Pengadilan Distrik Pusat Seoul memutuskan:"
 
-"Satu! Membatalkan seluruh keputusan sidang terdahulu dan mengabulkan gugatan Pihak Penggugat secara mutlak!"
+"Satu. Membatalkan penolakan sita sementara terdahulu dan menerima bukti pembanding untuk kepentingan tindakan darurat."
 
-"Dua! Memerintahkan Pemblokiran Aset Total Korporasi Pharma-Corp sebesar lima puluh miliar Won untuk biaya pengobatan dan ganti rugi seluruh korban pencemaran limbah Incheon!"
+"Dua. Menetapkan sita sementara atas aset Pharma-Corp sampai nilai lima puluh miliar won dan memerintahkan pembentukan rekening penampungan biaya medis selama pokok perkara diperiksa."
 
-"Tiga! Memerintahkan Kepolisian Pusat untuk segera menangkap jajaran direksi Pharma-Corp serta mencabut lisensi hukum Pengacara Kang Min-Seok atas dugaan tindak pidana manipulasi peradilan!"
+"Tiga. Meneruskan dugaan suap, manipulasi bukti, dan penghilangan aset kepada kejaksaan serta Asosiasi Pengacara Korea untuk diproses menurut kewenangan masing-masing."
 
 *TAK!*
 
 Palu keputusan dijatuhkan dengan dentuman nyaring yang menggelegar!
 
-"TIDAK! INI TIDAK MUNGKIN!" jerit Kang Min-Seok histeris. Wajahnya yang biasa narsistik dan sombong runtuh seketika saat dua petugas kepolisian langsung melangkah masuk dan memasangkan borgol di kedua pergelangan tangannya.
+"Tidak! Ini tidak mungkin!" jerit Kang Min-Seok. Kesombongannya runtuh ketika dua penyidik antikorupsi memasuki ruang sidang. Mereka tidak datang atas perintah lisan majelis, melainkan membawa surat perintah terpisah berdasarkan transaksi yang diserahkan kepada kejaksaan sejak dini hari. Borgol menutup kedua pergelangan tangannya.
 
-Tangis haru dan sorak-sorai belasan ibu-ibu korban dari Incheon pecah seketika di ruang sidang. Mereka saling berpelukan dan meneteskan air mata bahagia melihat keadilan panggung terang akhirnya berpihak pada anak-anak mereka.
+Yoo-Jin tidak ikut merayakan terlalu cepat. Sita sementara belum menjadi putusan akhir, dan Pharma-Corp masih dapat mengajukan keberatan melalui majelis lain. Ia segera meminta panitera mencatat nomor rekening penampungan, batas waktu pemindahan biaya medis, serta larangan direksi menjual aset utama selama pemeriksaan berlangsung.
 
-Yoo-Jin membungkuk hormat ke arah Majelis Hakim dengan senyuman puas yang sangat cool. Ia membetulkan kacamatanya, lalu berbalik menatap Jae-Shin.
+Di bangku belakang, seorang ibu menutupi wajahnya sambil menangis. Bukan karena seluruh perkara telah selesai, melainkan karena untuk pertama kalinya biaya perawatan anaknya memiliki perlindungan hukum. Harapan kecil itu lebih berarti daripada setiap sorak kemenangan di ruang sidang.
+
+Chae-Eun mengirim pesan kepada tim lapangan agar para keluarga tidak memberikan pernyataan berlebihan kepada media. Mereka harus menjaga korban dari tekanan publik dan mencegah Taesan memanfaatkan kesalahan ucapan sebagai alasan menyerang balik.
+
+Yoo-Jin membungkuk hormat kepada majelis, lalu berbalik menatap Jae-Shin dengan kelegaan yang tertahan.
 
 Jae-Shin berdiri santai, memasukkan bolpoin tebal mewahnya ke dalam saku jas, lalu menepuk bahu Yoo-Jin.
 
 "Pekerjaan yang luar biasa di panggung terang, Pengacara Utama Han Yoo-Jin," bisik Jae-Shin dengan senyuman tipis yang sangat dingin.
 
-Jae-Shin melirik Hakim Park yang sedang mengusap keringat dingin di mimbarnya. 
+Jae-Shin melirik Min-Seok yang dibawa keluar oleh penyidik.
 
 "Hukum terang telah menjalankan tugasnya hari ini... tapi kegelapan di balik Pharma-Corp baru saja dimulai."
+
+---

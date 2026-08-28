@@ -106,7 +106,7 @@ Barata berhenti tepat di hadapan tumpukan mayat tersebut. Bau amis yang luar bia
 
 Di saat yang bersamaan, pintu sisi pengemudi sebuah sedan hitam tanpa plat nomor yang terparkir di bahu jalan darurat atas jembatan berderit terbuka.
 
-Inspektur Kepala Park Min-hyuk melangkah turun dari atas jembatan. Perwira menengah kepolisian itu mengenakan seragam lengkap yang rapi, namun kancing kerahnya terbuka longgar, memperlihatkan lehernya yang berkeringat. Ia menyalakan sebatang rokok kretek; percikan api kecil dari pemantiknya menerangi sekilas wajahnya yang berminyak dan matanya yang sayu. Min-hyuk berjalan mendekati bibir kolong jembatan, matanya melirik sekilas ke arah mayat-mayat yang termutilasi tanpa ada secercah pun rasa kemanusiaan atau keterkejutan di wajahnya. Pemandangan seperti ini sudah terlalu sering ia saksikan.
+Inspektur Utama Park Min-hyuk melangkah turun dari atas jembatan. Perwira menengah kepolisian itu mengenakan seragam lengkap yang rapi, namun kancing kerahnya terbuka longgar, memperlihatkan lehernya yang berkeringat. Ia menyalakan sebatang rokok kretek; percikan api kecil dari pemantiknya menerangi sekilas wajahnya yang berminyak dan matanya yang sayu. Min-hyuk berjalan mendekati bibir kolong jembatan, matanya melirik sekilas ke arah mayat-mayat yang termutilasi tanpa ada secercah pun rasa kemanusiaan atau keterkejutan di wajahnya. Pemandangan seperti ini sudah terlalu sering ia saksikan.
 
 Min-hyuk menghembuskan kepulan asap abu-abu tebal ke udara malam yang dingin.
 
@@ -187,7 +187,7 @@ Tiga murid berseragam sekolahnya tengah berkumpul di gang sempit bersama dua ang
 
 "Pastikan barang ini tersebar di kelas dua dan tiga," ancam salah satu anggota Viper.
 
-Dari balik pilar beton, Jin mengeluarkan handphone-nya. Ia merekam secara diam-diam wajah ketiga murid, dua anggota Viper, pelat nomor motor, dan rute transaksi mereka.
+Dari balik pilar beton, Jin mengeluarkan ponsel-nya. Ia merekam secara diam-diam wajah ketiga murid, dua anggota Viper, pelat nomor motor, dan rute transaksi mereka.
 
 *Celah keamanan ditemukan. Sindikat Viper mulai menyusupkan pasokan barang ke sekolah.*
 
@@ -237,7 +237,7 @@ Jin membalikkan badan dan melangkah pergi menembus malam. Target berikutnya tela
 
 Di tengah pekatnya keheningan malam.
 
-Ruang kerja Inspektur Kepala Park Min-hyuk di lantai tiga Markas Kepolisian Distrik Barat tampak gelap, hanya diterangi oleh tembakan cahaya biru pucat dari tiga layar monitor komputer di atas mejanya. Bau asap rokok kretek bercampur uap kopi dingin memenuhi ruangan tertutup tersebut.
+Ruang kerja Inspektur Utama Park Min-hyuk di lantai tiga Markas Kepolisian Distrik Barat tampak gelap, hanya diterangi oleh tembakan cahaya biru pucat dari tiga layar monitor komputer di atas mejanya. Bau asap rokok kretek bercampur uap kopi dingin memenuhi ruangan tertutup tersebut.
 
 Min-hyuk duduk bersandar di kursi kulitnya, memutar ulang rekaman CCTV lalu lintas tersembunyi yang diambil dari sudut atas jembatan layang—lokasi pelarutan tiga mayat oleh faksi Barata.
 
@@ -249,7 +249,7 @@ Matanya yang sayu mendadak menyipit tajam. Pada sudut kanan bawah monitor, di da
 
 Ia memajukan posisi duduknya, lalu membuka jendela berkas kedua di layarnya. Berkas itu berisi laporan autopsi rahasia dan rekonstruksi digital dari lima orang penagih upeti Viper yang ditemukan tewas dengan leher patah di sekitar sektor pelabuhan kargo dan area sekolah SMA Distrik Barat.
 
-Min-hyuk menjalankan program analisis pola serangan milik kepolisian. Garis-garis merah pada layar menghubungkan titik-titik lokasi pembunuhan, sudut patahan tulang karotis, hingga jangkauan rotasi bahu pelaku. 
+Min-hyuk menjalankan program analisis pola serangan milik kepolisian. Garis-garis merah pada layar menghubungkan titik-titik lokasi pembunuhan, sudut patahan tulang karotis, hingga jangkauan rotasi bahu pelaku.
 
 Hasil komputasi data menampilkan satu kecocokan profil fisik yang mengejutkan: seorang remaja laki-laki berusia 18 tahun, memiliki tinggi badan 182 sentimeter, dengan kelincahan sendi di atas rata-rata orang dewasa.
 
@@ -262,9 +262,9 @@ Foto kedua: **Kang Dojin** — murid bersenyum hangat yang tercatat sebagai sisw
 
 ***
 
-Sementara itu, di lantai teratas gedung pencakar langit *Viper Tower*—markas utama Sindikat Viper yang menghadap ke lautan lampu kota Seora—suasana ruangan lounge mewah bernuansa serba hitam terasa begitu opresif. 
+Sementara itu, di lantai teratas gedung pencakar langit *Viper Tower*—markas utama Sindikat Viper yang menghadap ke lautan lampu kota Seora—suasana ruangan lounge mewah bernuansa serba hitam terasa begitu opresif.
 
-Inspektur Kepala Park Min-hyuk melangkah masuk dengan napas sedikit terengah-engah. Ia melempar sebuah amplop cokelat tebal ke atas meja kaca di hadapan seorang pria yang sedang duduk santai menikmati secangkir anggur merah.
+Inspektur Utama Park Min-hyuk melangkah masuk dengan napas sedikit terengah-engah. Ia melempar sebuah amplop cokelat tebal ke atas meja kaca di hadapan seorang pria yang sedang duduk santai menikmati secangkir anggur merah.
 
 Pria itu mengenakan kemeja sutra hitam tanpa dasi, dengan mantel panjang melambai di bahunya. Wajahnya tampan namun pucat pasi seperti mayat, dengan bekas jahitan tipis yang memanjang dari sudut mata kirinya hingga ke telinga. Ia adalah **Baek Seung-chul**—orang terkuat ketiga di struktur hierarki Sindikat Viper, yang dikenal di dunia bawah tanah dengan julukan *"Sang Jagal Tanpa Bayangan"*.
 
@@ -272,7 +272,7 @@ Pria itu mengenakan kemeja sutra hitam tanpa dasi, dengan mantel panjang melamba
 
 Seung-chul tidak langsung menjawab. Dengan jemarinya yang panjang dan kurus, ia membuka amplop cokelat tersebut dan mengeluarkan foto Ryu Jin serta Kang Dojin.
 
-Sorot mata Seung-chul yang berkilat merah meredup menatap kedua foto tersebut. 
+Sorot mata Seung-chul yang berkilat merah meredup menatap kedua foto tersebut.
 
 *Clack!*
 
@@ -298,7 +298,7 @@ Suasana di Sekolah Menengah Atas Distrik Barat terasa berbeda dari biasanya. Uda
 
 Di barisan depan kelas 3-B, Kang Dojin sedang tertawa bersama beberapa teman sekelasnya. Namun di balik senyum ramahnya yang biasa, sudut mata Dojin menyipit tajam. Insting predator alaminya bergetar hebat—sebuah sinyal bahaya purba yang memperingatkan bahwa ada pemangsa yang jauh lebih besar dan haus darah sedang mengincarnya dari dalam bayang-bayang.
 
-Di pojok belakang kelas, Ryu Jin duduk bersandar dengan tangan terbenam di saku celana. Earphone putihnya tidak memutarkan musik apa pun; Jin sedang mendengarkan frekuensi pemindai radio polisi rahasia yang terhubung ke handphone-nya.
+Di pojok belakang kelas, Ryu Jin duduk bersandar dengan tangan terbenam di saku celana. Earphone putihnya tidak memutarkan musik apa pun; Jin sedang mendengarkan frekuensi pemindai radio polisi rahasia yang terhubung ke ponsel-nya.
 
 Melalui saluran terenkripsi itu, Jin menangkap sinyal pergerakan tak biasa: instruksi khusus dari Inspektur Park Min-hyuk yang memblokir seluruh kamera pengawas di sekitar sektor tiga, disusul laporan pergerakan tim pemburu utama Viper.
 
@@ -600,7 +600,7 @@ Tanpa membuang waktu satu detik pun, Jae-hyeok bersama rekannya melompat turun d
 
 Ryu Jin bahkan tidak membalikkan badannya secara penuh. Sorot mata birunya tetap dingin dan tanpa ekspresi sedikit pun, memandang Jae-hyeok seperti melihat dua orang asing yang tidak dikenal. Berita pengepungan ratusan musuh itu hanyalah potongan variabel yang langsung ia masukkan ke dalam kalkulasi logikanya.
 
-Jin mengeluarkan handphone dari sakunya, membuka gambar peta denah struktur tata letak jalanan sektor timur. Matanya bergerak cepat menyapu setiap sudut gang dan ketinggian bangunan di sekitar lokasi pengepungan.
+Jin mengeluarkan ponsel dari sakunya, membuka gambar peta denah struktur tata letak jalanan sektor timur. Matanya bergerak cepat menyapu setiap sudut gang dan ketinggian bangunan di sekitar lokasi pengepungan.
 
 "Tiga menit dari sini," suara Jin datar, dingin, dan asing. "Dengarkan."
 
@@ -672,7 +672,7 @@ Mata biru Jin menyipit dingin menatap Baek Seung-chul.
 
 ## BAB 10: RUNTUHNYA PILAR KETIGA
 
-Gerimis malam makin lebat menyapu lapangan beton markas pusat sektor timur. 
+Gerimis malam makin lebat menyapu lapangan beton markas pusat sektor timur.
 
 Asap tipis membubung dari tubuh dua puluh empat anggota Viper yang tumbang bergelimpangan akibat rentetan baut presisi Ryu Jin. Di tengah kekacauan formasi musuh yang kacau-balau, Ryu Jin berdiri tegak beberapa meter di hadapan Baek Seung-chul—Orang Terkuat Ke-3 di hierarki Sindikat Viper.
 
@@ -826,13 +826,13 @@ Lee Jae-hyeok bersama Park Jin-woo yang melihat pemandangan itu dari dalam lapan
 
 Ryu Jin melangkah tenang di antara gelimpangan tubuh anggota musuh. Ia berhenti di samping tubuh Barata yang meraung kesakitan di tanah.
 
-Dengan wajah yang tetap datar tanpa emosi sedikit pun, Jin membungkuk dan mencabut handphone milik Barata dari dalam saku jaket pria raksasa itu. Layar ponsel tersebut masih aktif.
+Dengan wajah yang tetap datar tanpa emosi sedikit pun, Jin membungkuk dan mencabut ponsel milik Barata dari dalam saku jaket pria raksasa itu. Layar ponsel tersebut masih aktif.
 
-Jin membuka menu pesan, lalu mengetik sebuah pesan teks singkat yang ditujukan langsung ke nomor pribadi Inspektur Kepala Park Min-hyuk:
+Jin membuka menu pesan, lalu mengetik sebuah pesan teks singkat yang ditujukan langsung ke nomor pribadi Inspektur Utama Park Min-hyuk:
 
 *"Petinggi nomor tigamu sekarat di markas pusat sektor timur. Bawa ambulans dan tim medis dalam lima menit jika kau tidak ingin kasus ini membakar kursimu esok pagi."*
 
-Pesan terkirim. Jin membiarkan handphone itu tergeletak di samping kepala Barata yang meratap, memastikan nyawa Seung-chul dan Barata tetap tertolong agar mereka menjadi saksi hidup dan beban psikologis yang menghancurkan mental Inspektur Min-hyuk.
+Pesan terkirim. Jin membiarkan ponsel itu tergeletak di samping kepala Barata yang meratap, memastikan nyawa Seung-chul dan Barata tetap tertolong agar mereka menjadi saksi hidup dan beban psikologis yang menghancurkan mental Inspektur Min-hyuk.
 
 Dojin melangkah mendekat sambil menyapu darah di bahunya, terkekeh pelan. "Pesan yang sangat perhatian, Jin."
 
@@ -868,7 +868,7 @@ Bisik-bisik ketakutan dan rasa penasaran melingkupi setiap sudut persembunyian d
 
 Sementara itu, di lantai teratas Markas Kepolisian Distrik Barat.
 
-Ruang kerja Inspektur Kepala Park Min-hyuk dipenuhi ketegangan yang mencekam. Min-hyuk berdiri gemetaran di depan jendela kacanya, menyapu keringat dingin yang terus membasahi dahinya. Di mejanya, layar ponsel memperlihatkan pesan teks dingin yang dikirim Ryu Jin semalam dari handphone Barata.
+Ruang kerja Inspektur Utama Park Min-hyuk dipenuhi ketegangan yang mencekam. Min-hyuk berdiri gemetaran di depan jendela kacanya, menyapu keringat dingin yang terus membasahi dahinya. Di mejanya, layar ponsel memperlihatkan pesan teks dingin yang dikirim Ryu Jin semalam dari ponsel Barata.
 
 Ponsel di mejanya mendadak berdering nyaring.
 
@@ -890,7 +890,7 @@ Keesokan harinya, di Sekolah Menengah Atas Distrik Barat.
 
 Suasana di koridor sekolah tampak tenang seperti biasanya bagi murid-murid awam. Namun bagi lima anggota Geng Hydra, atmosfer di sekolah ini telah berubah secara total.
 
-Di halaman belakang dekat lapangan, Park Jin-woo bersama Lee Jae-hyeok berdiri menyandar di dinding. Mata mereka menatap lurus ke arah lorong kelas 3-B. 
+Di halaman belakang dekat lapangan, Park Jin-woo bersama Lee Jae-hyeok berdiri menyandar di dinding. Mata mereka menatap lurus ke arah lorong kelas 3-B.
 
 Dari kejauhan, tampak Kang Dojin berjalan santai sambil tersenyum ramah kepada beberapa siswi yang menyapanya. Bekas luka sabetan pisau di bahu Dojin tersembunyi rapat di balik kain kemeja putihnya yang rapi. Tidak ada satu pun murid biasa yang menyangka bahwa pemuda bersenyum hangat itu semalam baru saja meremukkan seluruh persendian algojo raksasa Viper.
 
@@ -930,7 +930,7 @@ Musim gugur telah berganti menjadi awal musim dingin. Ujian akhir sekolah telah 
 
 Di salah satu sudut jalanan Distrik Barat yang tenang, sebuah ruko tua dua lantai telah berganti wajah.
 
-Ryu Jin—yang hidup sebatang kara tanpa keluarga—menggunakan sisa dana warisan peninggalan orang tuanya untuk menyewa dan merenovasi bangunan tersebut. 
+Ryu Jin—yang hidup sebatang kara tanpa keluarga—menggunakan sisa dana warisan peninggalan orang tuanya untuk menyewa dan merenovasi bangunan tersebut.
 
 Lantai satu bangunan itu difungsikan sebagai restoran makanan hangat sederhana. Sementara lantai dua disulap menjadi sebuah *coffee shop* berdesain minimalis yang tenang dan hangat. Kang Dojin, yang sejak kecil tinggal bersama neneknya, memutuskan untuk ikut mengurus dan bekerja di *coffee shop* tersebut. Nenek Dojin yang dikenal lihai meracik biji kopi berkualitas menjadi jiwa dari kedai tersebut, menghadirkan aroma kopi seduh alami yang memikat para pelanggan setempat.
 
@@ -944,7 +944,7 @@ Di dalam ruangan khusus yang minim pencahayaan tersebut.
 
 Ryu Jin duduk bersandar di depan jajaran layar komputer usang. Lampu meja bercahaya temaram memantulkan warna biru dingin pada sepasang mata Jin yang tanpa emosi. Jemari Jin bergerak konstan di atas papan ketik, menelusuri database arsip kejahatan masa lalu yang telah dihapus dari sistem kepolisian publik.
 
-Bagi Jin, kejatuhan Baek Seung-chul dua bulan lalu hanyalah pembuka dari skenario mikro. 
+Bagi Jin, kejatuhan Baek Seung-chul dua bulan lalu hanyalah pembuka dari skenario mikro.
 
 Ia mengalkulasi bahwa faksi utama Viper dan empat Sindikat Besar lainnya kini mulai mengunci seluruh jaringan komunikasi digital mereka. Dua orang saja tidak akan cukup untuk merobek struktur kejahatan yang telah mengakar rapat hingga ke pejabat institusi negara. Sebelum perang terbuka skala besar meletus, Jin harus mengumpulkan variabel baru.
 
@@ -976,7 +976,7 @@ Kang Dojin melangkah masuk sambil menenteng nampan kayu berisi dua cangkir kopi 
 
 "Coba ini, Arsitek," sapa Dojin sambil meletakkan salah satu cangkir di samping keyboard Jin. "Racikan kopi racikan nenekku hari ini benar-benar juara. Aromanya bisa membuat otak bekumu sedikit hangat."
 
-Jin meraih cangkir seramik itu, menyeruput kopi panas racikan nenek Dojin secara perlahan. Kehangatan kopi itu mengalir pelan di tenggorokannya. 
+Jin meraih cangkir seramik itu, menyeruput kopi panas racikan nenek Dojin secara perlahan. Kehangatan kopi itu mengalir pelan di tenggorokannya.
 
 Ia lalu memutar salah satu layar monitornya ke arah Dojin, menampilkan foto lama Han Shin-woo beserta peta koordinat persembunyian di daerah pegunungan pinggiran distrik.
 
@@ -1012,7 +1012,7 @@ Dojin memutar kemudi ke kanan, mematikan lampu utama kendaraan lalu membiarkan m
 
 Dojin melangkah turun menyusul Jin, menyapu sekeliling dengan pandangan liarnya. "Tempat yang sangat terpencil. Anak Hakim itu benar-benar mengisolasi diri dari dunia."
 
-Jin tidak menjawab. Ia memberi isyarat tangan singkat, melangkah tanpa suara menyusuri dinding beton gudang yang ditumbuhi lumut tebal. 
+Jin tidak menjawab. Ia memberi isyarat tangan singkat, melangkah tanpa suara menyusuri dinding beton gudang yang ditumbuhi lumut tebal.
 
 ***
 
@@ -1054,17 +1054,17 @@ Ryu Jin mengamati seluruh pertarungan hidup-mati itu dalam diam.
 
 Mata biru Jin menyipit tajam, merekam akurasi eksekusi saraf dan kelincahan Shin-woo. Jin yang awalnya hanya menargetkan berkas dokumen rahasia peninggalan Hakim Han, kini menyadari variabel lain yang jauh lebih berharga di hadapannya.
 
-Han Shin-woo bukan sekadar anak saksi yang menyembunyikan dokumen lama. 
+Han Shin-woo bukan sekadar anak saksi yang menyembunyikan dokumen lama.
 
 Shin-woo adalah seorang petarung titik vital berdarah dingin yang telah menempa dirinya menjadi senjata pemungkas. Kombinasi ketahanan fisik, stamina puncak, dan akurasi sarafnya adalah aset taktis yang sangat berharga untuk perang besar mereka kelak.
 
 "Harta karun taktis..." bisik Jin pelan di dalam hatinya.
 
-Namun, dari balik celah ventilasi luar gudang, mata tajam Ryu Jin mendadak melihat sorot lampu ireng-irengan mobil mewah yang merayap cepat naik ke area pegunungan. 
+Namun, dari balik celah ventilasi luar gudang, mata tajam Ryu Jin mendadak melihat sorot lampu ireng-irengan mobil mewah yang merayap cepat naik ke area pegunungan.
 
 *Penyergapan ini bukan sekadar pasukan kroco,* batin Jin, mengalkulasi kecepatan laju kendaraan tersebut. *Wakil Ketua Sindikat Cerberus akan tiba di lokasi ini dalam waktu tepat satu menit.*
 
-Jin menepuk bahu Dojin. "Saatnya turun tangan." 
+Jin menepuk bahu Dojin. "Saatnya turun tangan."
 
 ---
 
@@ -1132,7 +1132,7 @@ Shin-woo menelan ludah. Nama ayahnya yang diucapkan Jin melumpuhkan keraguannya.
 
 "Lewat jalur belakang," perintah Jin pendek.
 
-Tepat sepuluh detik kemudian—saat Ryu Jin, Kang Dojin, dan Han Shin-woo menerobos keluar dari pintu darurat belakang—pintu gerbang depan gudang didobrak keras. 
+Tepat sepuluh detik kemudian—saat Ryu Jin, Kang Dojin, dan Han Shin-woo menerobos keluar dari pintu darurat belakang—pintu gerbang depan gudang didobrak keras.
 
 Iring-iringan tiga mobil SUV mewah berhenti. Petinggi nomor dua Sindikat Cerberus bersama puluhan pengawal elit melangkah masuk membawa senjata api. Namun alih-alih menemukan anak sang Hakim, mereka hanya menemukan ruangan gudang yang gelap gulita, dipenuhi belasan anggota mereka sendiri yang tergeletak kejang tak berdaya di atas lantai!
 
@@ -1228,7 +1228,7 @@ Jin menarik handuk kecil di pinggir matras, menyapu keringat di pelipisnya denga
 
 Usai menyegarkan diri dan berjalan dua blok kembali ke ruko dua lantai milik Jin, ketiganya berkumpul di **Markas Rahasia (Headquarters)**—ruangan khusus tersembunyi di balik rak buku lantai dua *coffee shop*. Kang Dojin membawakan tiga cangkir kopi hitam panas racikan neneknya, menyeruput kopi tersebut sambil menyeringai puas.
 
-Di tengah meja, lembaran-lembaran dokumen peninggalan **Hakim Agung Han Sung-jae** terbentang rapi. Berkas harta karun tersebut berisi peta jaringan hitam paling lengkap di Kota Seora: mulai dari skema aliran uang haram, nomor rekening pencucian uang Inspektur Kepala Park Min-hyuk, hingga struktur hierarki internal lima Sindikat Besar.
+Di tengah meja, lembaran-lembaran dokumen peninggalan **Hakim Agung Han Sung-jae** terbentang rapi. Berkas harta karun tersebut berisi peta jaringan hitam paling lengkap di Kota Seora: mulai dari skema aliran uang haram, nomor rekening pencucian uang Inspektur Utama Park Min-hyuk, hingga struktur hierarki internal lima Sindikat Besar.
 
 Shin-woo menunjuk satu lembar cetak biru wilayah sektor barat. "Ini adalah jaringan keuangan utama yang menghidupi Sindikat Viper selama sepuluh tahun terakhir."
 
@@ -1270,7 +1270,7 @@ Mata biru Ryu Jin menyipit tajam. Di dalam kalkulasi taktis Jin, memutus rantai 
 
 Jin mengatupkan laptopnya, berdiri tegak di tengah ruangan markas rahasia mereka.
 
-"Persiapkan diri selama satu bulan ke depan," perintah Jin pelan, dingin, dan mutlak. "Setelah itu... kita berangkat ke Distrik Utara." 
+"Persiapkan diri selama satu bulan ke depan," perintah Jin pelan, dingin, dan mutlak. "Setelah itu... kita berangkat ke Distrik Utara."
 
 ---
 
@@ -1280,9 +1280,9 @@ Di tengah masa latihan satu bulan yang tenang namun membara.
 
 Malam-malam di Distrik Barat diselimuti oleh kabut dingin dan gerimis tipis yang membasahi lantai aspal. Sementara Kang Dojin dan Han Shin-woo mematangkan kemistri bertarung mereka di aula latihan rahasia, Ryu Jin kerap melangkah keluar sendirian, menyusuri jalanan kelam distrik dalam balutan jaket tebal hitamnya.
 
-Bagi Jin, mempersiapkan fisik saja tidak akan cukup untuk menghadapi pertempuran makro. 
+Bagi Jin, mempersiapkan fisik saja tidak akan cukup untuk menghadapi pertempuran makro.
 
-Ia mengalkulasi jauh ke depan: saat Sindikat Viper dan penguasa bawah tanah nantinya hancur diruntuhkan, akan timbul kekosongan kekuasaan yang bisa dimanfaatkan oleh perwira polisi korup seperti Inspektur Kepala Park Min-hyuk untuk menutupi kejahatan mereka. Membongkar institusi polisi dari luar adalah hal yang sia-sia jika tidak ada pilar hukum yang bersih dari dalam.
+Ia mengalkulasi jauh ke depan: saat Sindikat Viper dan penguasa bawah tanah nantinya hancur diruntuhkan, akan timbul kekosongan kekuasaan yang bisa dimanfaatkan oleh perwira polisi korup seperti Inspektur Utama Park Min-hyuk untuk menutupi kejahatan mereka. Membongkar institusi polisi dari luar adalah hal yang sia-sia jika tidak ada pilar hukum yang bersih dari dalam.
 
 Untuk itulah, Jin butuh menemukan **"Variabel di Balik Lencana"**—seorang polisi murni dan jujur yang kelak akan menjadi instrumen penegak hukum mutlak saat kekuasaan mafia bawah tanah runtuh.
 
@@ -1312,11 +1312,11 @@ Mata biru Jin menyipit tajam. Di dalam memori otaknya, Jin mencatat profil lengk
 
 *Kalkulasi selesai. Variabel internal telah ditemukan.*
 
-Jin tahu bahwa menjatuhkan Inspektur Park Min-hyuk dan polisi korup bukan agenda untuk hari ini—hal itu adalah skenario besar yang akan dieksekusi saat mafia bawah tanah runtuh total di masa depan. Namun malam ini, Jin telah menemukan pilar yang tepat. 
+Jin tahu bahwa menjatuhkan Inspektur Park Min-hyuk dan polisi korup bukan agenda untuk hari ini—hal itu adalah skenario besar yang akan dieksekusi saat mafia bawah tanah runtuh total di masa depan. Namun malam ini, Jin telah menemukan pilar yang tepat.
 
-Tanpa mengeluarkan suara apa pun, Ryu Jin membalikkan badannya di atas atap pertokoan, melangkah tenang menembus gerimis malam menuju markas rahasia mereka. 
+Tanpa mengeluarkan suara apa pun, Ryu Jin membalikkan badannya di atas atap pertokoan, melangkah tenang menembus gerimis malam menuju markas rahasia mereka.
 
-Bidak di balik lencana resmi terkunci di dalam otaknya. Waktunya akan tiba. 
+Bidak di balik lencana resmi terkunci di dalam otaknya. Waktunya akan tiba.
 
 ---
 
@@ -1352,7 +1352,7 @@ Dan dari balik kegelapan lorong gang di luar gudang, Ryu Jin melangkah senyap da
 
 Di dalam gudang terbengkalai yang gelap dan berdebu.
 
-Kelima anggota Viper menggeletakkan tubuh perempuan itu ke atas tumpukan peti kayu tua. 
+Kelima anggota Viper menggeletakkan tubuh perempuan itu ke atas tumpukan peti kayu tua.
 
 *PRANG! BUGH!*
 
@@ -1410,7 +1410,7 @@ Suasana gudang mendadak hening mencekam. Tae-gyu terduduk dengan napas memburu, 
 
 Di atas lantai peredam, sebuah baut baja berdarah tergeletak di samping musuh.
 
-Tae-gyu menyapu pandangannya, tersadar bahwa sesosok penolong misterius di dalam kegelapan baru saja menyelamatkan nyawanya dan mendukung perjuangan hukumnya. Tanpa suara, Ryu Jin telah melangkah pergi menembus dinginnya malam Distrik Barat, meninggalkan Tae-gyu yang berhasil menyelamatkan perempuan tersebut. 
+Tae-gyu menyapu pandangannya, tersadar bahwa sesosok penolong misterius di dalam kegelapan baru saja menyelamatkan nyawanya dan mendukung perjuangan hukumnya. Tanpa suara, Ryu Jin telah melangkah pergi menembus dinginnya malam Distrik Barat, meninggalkan Tae-gyu yang berhasil menyelamatkan perempuan tersebut.
 
 ---
 
@@ -1468,7 +1468,7 @@ Mereka membawa tas perlengkapan masuk ke dalam penginapan, menyewa kamar yang am
 
 Di dalam kamar penginapan yang temaram, Dojin merebahkan badannya di tepi ranjang sambil mengamati jendela, sementara Shin-woo mulai membongkar peralatan komunikasi. Ryu Jin berdiri di dekat celah tirai jendela, menatap dingin ke arah pendar lampu-lampu kapal di dermaga bayangan dari kejauhan.
 
-Malam pertama mereka di Distrik Utara diselimuti keheningan yang tenang. Besok pagi, perburuan mereka dimulai. 
+Malam pertama mereka di Distrik Utara diselimuti keheningan yang tenang. Besok pagi, perburuan mereka dimulai.
 
 ---
 
@@ -1498,13 +1498,13 @@ Di tengah puing-puing kaca yang berserakan di depan pintu masuk, dua orang pria 
 
 *Sreeek!*
 
-Mobil yang dikendarai Dojin berhenti di bahu jalan. 
+Mobil yang dikendarai Dojin berhenti di bahu jalan.
 
 Dojin menaikkan sebelah alisnya, mengerutkan dahi. "Siapa dua orang gila yang berteriak di pagi kabut begini?"
 
 Ryu Jin menatap tajam dari balik kaca mobil. "Turun."
 
-Ketiganya membuka pintu mobil dan melangkah mendekati area Ruko Karaoke Oasis yang hancur tersebut. 
+Ketiganya membuka pintu mobil dan melangkah mendekati area Ruko Karaoke Oasis yang hancur tersebut.
 
 ***
 
@@ -1568,7 +1568,7 @@ Ryu Jin mencabut ponsel sekali pakai dari saku jaketnya, menekan nomor rahasia m
 
 "Sektor luar Distrik Utara, Ruko Karaoke Oasis tua. Ada tiga korban pembunuhan Viper. Amankan tempat ini dan urus pemakaman yang layak untuk mereka. Kami yang akan mengurus sisanya dan membereskan para sampah yang melakukan ini. Pastikan laporan ini tidak bocor ke jaringan internal kepolisian Distrik Barat."
 
-Tae-gyu di seberang telepon sempat berteriak terkejut menanyakan detailnya, namun tanpa menunggu balasan dari Tae-gyu, Jin mematikan telepon, melepas baterainya, dan menghancurkan kartu sekali pakai tersebut hingga patah menjadi dua bagian sebelum membuangnya ke tumpukan besi tua. Ia menoleh ke arah Dojin dan Shin-woo. 
+Tae-gyu di seberang telepon sempat berteriak terkejut menanyakan detailnya, namun tanpa menunggu balasan dari Tae-gyu, Jin mematikan telepon, melepas baterainya, dan menghancurkan kartu sekali pakai tersebut hingga patah menjadi dua bagian sebelum membuangnya ke tumpukan besi tua. Ia menoleh ke arah Dojin dan Shin-woo.
 
 "Angkut Jin-woo dan Jae-hyeok ke dalam mobil. Kita kembali ke penginapan sekarang juga sebelum faksi patroli utama Viper melintas."
 
@@ -1646,7 +1646,7 @@ Kang Dojin berdiri tegak, menyeringai gila dengan pandangan mata yang membara ol
 
 Ryu Jin melangkah mendekati jendela, menatap dingin ke arah hamparan tumpukan rongsokan elektronik di Distrik Utara. Seluruh rencana perburuan di dalam otaknya kini telah terhubung sempurna.
 
-"Istirahatlah," suara Jin mengalir datar dan dingin. "Perburuan Viper... dimulai hari ini." 
+"Istirahatlah," suara Jin mengalir datar dan dingin. "Perburuan Viper... dimulai hari ini."
 
 ---
 
@@ -1664,7 +1664,7 @@ Shin-woo mendongak, menyapu pandangannya pada meja peta sebelum mengangguk pelan
 
 "Bagaimana nasib Jaksa Choi dan keluarganya setelah ayahmu dibunuh lima tahun lalu?" suara Jin mengalir datar dan menuntut.
 
-Shin-woo menarik napas panjang, menatap bayangan kabut di luar jendela yang menyelimuti perbukitan Distrik Utara. 
+Shin-woo menarik napas panjang, menatap bayangan kabut di luar jendela yang menyelimuti perbukitan Distrik Utara.
 
 "Setelah ayahku terbunuh dalam ledakan mobil yang direkayasa sebagai kecelakaan lalu lintas," jelas Shin-woo dengan nada suara berat dan mata bergetar emosional, "Jaksa Choi sangat muak melihat kebusukan pejabat tinggi negara yang menekan dan menutup kasus tersebut secara paksa. Beliau sadar bahwa nyawanya dan keluarganya juga sedang diincar. Beliau memilih pensiun dini dari kejaksaan, memboyong keluarganya pindah secara diam-diam ke Distrik Utara, dan membuka bengkel perbaikan mesin kecil untuk hidup tenang di antara tumpukan kontainer besi."
 
@@ -1674,9 +1674,9 @@ Shin-woo mengepalkan tangannya di atas meja kayu. "Namun lima tahun lalu, orang-
 
 Ryu Jin mendengarkan dengan sangat teliti. "Apakah Jaksa Choi memiliki keturunan?"
 
-"Dia meninggalkan seorang anak laki-laki," jawab Shin-woo dengan mata yang memerah menahan haru. "Namanya **Choi Min-ho**. Sekarang dia berusia 22 tahun, seusia denganku. Sejak kecil, Min-ho memang anak yang sangat pendiam dan jenius dalam mengotak-atik mesin, sirkuit elektronik, dan radio HT. Dulu saat kedua ayah kami berdiskusi kasus hukum di ruang tamu, kami berdua sering bermain bersama di halaman belakang, merakit mainan sasis mobil-mobilan dari suku cadang bekas. Setelah ayahnya terbunuh lima tahun lalu, Min-ho menghilang tanpa jejak. Aku sempat mengira dia ikut terbunuh malam itu, namun rupanya dia bersembunyi di bawah kota rongsokan elektronik Distrik Utara ini."
+"Dia meninggalkan seorang anak laki-laki," jawab Shin-woo dengan mata yang memerah menahan haru. "Namanya **Choi Min-ho**. Sekarang dia berusia 22 tahun, tiga tahun lebih tua dariku. Sejak kecil, Min-ho memang anak yang sangat pendiam dan jenius dalam mengotak-atik mesin, sirkuit elektronik, dan radio HT. Dulu saat kedua ayah kami berdiskusi kasus hukum di ruang tamu, kami berdua sering bermain bersama di halaman belakang, merakit mainan sasis mobil-mobilan dari suku cadang bekas. Setelah ayahnya terbunuh lima tahun lalu, Min-ho menghilang tanpa jejak. Aku sempat mengira dia ikut terbunuh malam itu, namun rupanya dia bersembunyi di bawah kota rongsokan elektronik Distrik Utara ini."
 
-Mendengar penjelasan Shin-woo, mata biru Ryu Jin menyipit tajam. 
+Mendengar penjelasan Shin-woo, mata biru Ryu Jin menyipit tajam.
 
 Seluruh analisis rencana di dalam otaknya terhubung seketika dalam perhitungan yang sangat tepat.
 
@@ -1704,7 +1704,7 @@ Jin membalikkan badannya pada Shin-woo, memasukkan belati taktisnya ke dalam sak
 
 ***
 
-Ryu Jin dan Han Shin-woo melangkah keluar dari penginapan tua, menutup pintu kayu tebal di belakang mereka. Udara luar menyergap mereka dengan hembusan angin laut yang dingin dan bau besi berkarat yang menyengat hidung. 
+Ryu Jin dan Han Shin-woo melangkah keluar dari penginapan tua, menutup pintu kayu tebal di belakang mereka. Udara luar menyergap mereka dengan hembusan angin laut yang dingin dan bau besi berkarat yang menyengat hidung.
 
 Mereka menuruni perbukitan tanah liat merah, menatap ke bawah ke arah labirin raksasa Distrik Utara. Dari ketinggian ini, wilayah tersebut tampak seperti lautan sampah industri. Ribuan kontainer kargo tua berwarna-warni yang telah pudar dan berkarat ditumpuk acak, membentuk lorong-lorong gelap dan sempit. Di sela-sela tumpukan kontainer, kepulan asap abu-abu dan hijau dari beberapa cerobong pabrik kimia ilegal mengepul lambat ke angkasa, menutupi sinar matahari sore dan menciptakan suasana temaram yang mencekam.
 
@@ -1808,7 +1808,7 @@ Min-ho membeku seketika. Pemindai detektor dan gagang payung listrik di tanganny
 
 Shin-woo melangkah dua tapak maju secara perlahan untuk menunjukkan ia tidak membawa senjata tajam, derai air mata haru yang hangat menyengat kelopak matanya.
 
-"Ini aku, Min-ho... Han Shin-woo," ucap Shin-woo emosional dengan dada yang bergemuruh keras. "Putra dari Hakim Han Sung-jae... kawan lamamu saat kita merakit mobil-mobilan di halaman belakang dulu. Aku masih hidup, Min-ho." 
+"Ini aku, Min-ho... Han Shin-woo," ucap Shin-woo emosional dengan dada yang bergemuruh keras. "Putra dari Hakim Han Sung-jae... kawan lamamu saat kita merakit mobil-mobilan di halaman belakang dulu. Aku masih hidup, Min-ho."
 
 ---
 
@@ -1962,7 +1962,7 @@ Ryu Jin menutup layar laptop taktisnya dengan sentakan pelan, matanya berkilat s
 
 Malam makin larut di penginapan tua Distrik Utara.
 
-Cahaya hijau dari tiga layar monitor milik Choi Min-ho menyinari dinding kamar penginapan yang remang-remang. Usai Ryu Jin memaparkan Skenario Tiga Fase untuk merobohkan Kasino Bawah Tanah Viper, Choi Min-ho melangkah menuju dua peti baja hitam raksasa yang dibawanya dari bengkel kontainer Sektor Tujuh. 
+Cahaya hijau dari tiga layar monitor milik Choi Min-ho menyinari dinding kamar penginapan yang remang-remang. Usai Ryu Jin memaparkan Skenario Tiga Fase untuk merobohkan Kasino Bawah Tanah Viper, Choi Min-ho melangkah menuju dua peti baja hitam raksasa yang dibawanya dari bengkel kontainer Sektor Tujuh.
 
 Dengan bunyi klakson pengunci yang berat, Min-ho membuka kait kedua peti baja tersebut.
 
@@ -2062,7 +2062,7 @@ Ryu Jin yang sejak tadi berdiri diam mengamati seluruh uji coba senjata Min-ho m
 
 Di dalam memori otak Jin, kapasitas tempur Min-ho yang sanggup menumbangkan 20 hingga 30 musuh secara mandiri telah dimasukkan secara matematis ke dalam rencana penyerbuan Kasino Bawah Tanah.
 
-"Senjata dan kapasitas yang sempurna," suara Jin mengalir datar, dingin, dan mutlak. "Kuartet Predator siap bergerak." 
+"Senjata dan kapasitas yang sempurna," suara Jin mengalir datar, dingin, dan mutlak. "Kuartet Predator siap bergerak."
 
 ---
 
@@ -2172,7 +2172,7 @@ Kepala Polisi itu mencabut ponsel enkripsinya, memanggil pasukan operasi hitam r
 
 Siang hari di penginapan tua Distrik Utara.
 
-Di dalam kamar yang dingin, Ryu Jin sedang menyesuaikan detail-detail akhir dari koordinat penyerbuan Kasino Bawah Tanah Viper menggunakan laptop taktisnya. Di layar monitor, titik-titik pertahanan digital dan rute gerak faksi Kang Tae-shik telah tergambar dengan jelas. 
+Di dalam kamar yang dingin, Ryu Jin sedang menyesuaikan detail-detail akhir dari koordinat penyerbuan Kasino Bawah Tanah Viper menggunakan laptop taktisnya. Di layar monitor, titik-titik pertahanan digital dan rute gerak faksi Kang Tae-shik telah tergambar dengan jelas.
 
 Plan A—skenario penyerbuan tiga fase—telah matang seutuhnya di kepala Ryu Jin.
 
@@ -2184,7 +2184,7 @@ Namun, di tengah kesunyian persiapan taktis tersebut...
 
 *RINGGG! RINGGG!*
 
-Ponsel sekali pakai di saku Kang Dojin mendadak berdering kencang, memutus aliran ketenangan di dalam kamar. Dojin mencabut ponselnya dengan alis bertaut, menekan tombol sambungan. 
+Ponsel sekali pakai di saku Kang Dojin mendadak berdering kencang, memutus aliran ketenangan di dalam kamar. Dojin mencabut ponselnya dengan alis bertaut, menekan tombol sambungan.
 
 Dari seberang telepon, suara tangisan histeris Nara, pelayan perempuan di ruko *Coffee Shop* mereka di Distrik Barat, meledak dalam ketakutan yang hebat:
 
@@ -2204,11 +2204,11 @@ Namun, Ryu Jin melangkah cepat menghalangi jalan Dojin. Sepasang mata biru sedin
 
 "Mereka menculiknya, Jin!" teriak Dojin histeris dengan dada naik turun. "Bagaimana aku bisa tenang?!"
 
-"Ini adalah umpan," jelas Jin dengan sangat tenang yang tidak tergoyahkan sedikit pun oleh situasi darurat. 
+"Ini adalah umpan," jelas Jin dengan sangat tenang yang tidak tergoyahkan sedikit pun oleh situasi darurat.
 
 "Kepala Polisi Park Min-hyuk mengetahui benang merah pergerakan kita. Dia sengaja menculik nenekmu untuk memancing kita kembali ke Distrik Barat—wilayah di mana dia memegang kendali penuh atas hukum dan aparat kepolisian untuk menjebak kita."
 
-Jin menoleh menatap Han Shin-woo, Choi Min-ho, dan dua petinggi Hydra. 
+Jin menoleh menatap Han Shin-woo, Choi Min-ho, dan dua petinggi Hydra.
 
 "Jika kita semua bergerak panik kembali ke Barat, Plan A hancur dan kita masuk secara sukarela ke dalam jaring penyergapan mereka. Karena itu, situasi ini menuntut kita mengaktifkan **Plan B**."
 
@@ -2254,11 +2254,11 @@ Han Shin-woo dan Choi Min-ho menatap lencana perak itu. Shin-woo membaca ukiran 
 
 "Tae-gyu... dia disergap saat meneliti TKP!" batin Shin-woo kaget.
 
-Choi Min-ho langsung menarik laptopnya, jemarinya menari kilat meretas server CCTV lalu lintas jalanan di sekitar area Ruko Karaoke Oasis tua. Hanya dalam hitungan lima detik, layar monitor Min-ho menampilkan rekaman video CCTV beberapa menit lalu.
+Choi Min-ho langsung menarik laptopnya dan memakai kredensial kamera lalu lintas yang telah ia curi selama pengintaian sebelumnya. Kurang dari satu menit kemudian, layar menampilkan rekaman di sekitar Ruko Karaoke Oasis.
 
 Di dalam layar, tampak Detektif Lee Tae-gyu sedang memeriksa puing Ruko Karaoke Oasis sebelum disergap secara brutal oleh enam pria bersenjata berpakaian serba hitam. Tae-gyu bertarung sengit melumpuhkan dua penyerang, namun dihantam dari belakang hingga pingsan berdarah, lalu diseret masuk ke dalam van hitam.
 
-Min-ho memperbesar rute van hitam tersebut di peta GPS. 
+Min-ho memperbesar rute van hitam tersebut di peta GPS.
 
 "Van musuh sedang bergerak menuju zona industri sepi di ujung pesisir..." tegas Min-ho dingin. "Mereka membawa Detektif Tae-gyu ke **Dermaga Bayangan**!"
 
@@ -2282,7 +2282,7 @@ Jin melirik Dojin yang duduk di kursi kemudi dengan mata merah bersimbah gairah 
 
 Jin mengatupkan ponselnya, menatap lurus ke arah jalanan depan.
 
-"...sementara Shin-woo, Min-ho, dan Hydra akan menyelamatkan Detektif Tae-gyu di Dermaga Bayangan." 
+"...sementara Shin-woo, Min-ho, dan Hydra akan menyelamatkan Detektif Tae-gyu di Dermaga Bayangan."
 
 ---
 
@@ -2312,7 +2312,7 @@ Di dalam ruangan taktis lantai dua ruko.
 
 Ryu Jin membongkar kotak persenjataan khusus dari balik dinding rahasia. Kali ini, ketenangan biru Ryu Jin bergeser masuk ke dalam sebuah fase yang belum pernah disaksikan sebelumnya: **Mode Pembantai Taktis**.
 
-Jin tidak lagi hanya membawa baut baja Kinetic biasa. 
+Jin tidak lagi hanya membawa baut baja Kinetic biasa.
 
 Di pinggang kiri dan kanannya, Jin memasang dua kantong khusus berisi lima baut baja tebal di masing-masing sisi—total sepuluh baut tebal. Namun yang membuat udara ruangan mendadak membeku adalah ketika Jin merapatkan sabuk taktis dada dan paha.
 
@@ -2332,7 +2332,7 @@ Namun, saat Jin dan Dojin melangkah keluar dari pintu belakang kedai...
 
 *TAP! TAP! TAP!*
 
-Langkah kaki cepat terdengar dari lorong samping. Tiga pemuda berjaket lusuh berlari terengah-engah menghampiri mereka. 
+Langkah kaki cepat terdengar dari lorong samping. Tiga pemuda berjaket lusuh berlari terengah-engah menghampiri mereka.
 
 Ryu Jin menyipitkan matanya. Ketiga pemuda itu adalah tiga mantan remaja pengedar obat sekolah yang dulu pernah diinterogasi keras oleh Jin di gang Distrik Barat.
 
@@ -2374,7 +2374,207 @@ Di dalam kalkulasi fisika Jin, sepuluh oknum polisi bermagazin laras panjang dan
 
 Ryu Jin menurunkan teropongnya, menatap dingin ke arah kompleks markas musuh.
 
-"Operasi pembersihan... dimulai." 
+"Operasi pembersihan... dimulai."
+
+---
+
+## BAB 30: PENYERBUAN TANPA AMPUN
+
+**Pukul 21.50 WIB.**
+**Gedung Seberang Markas Besar Viper, Distrik Barat.**
+
+Malam gulita menyelimuti kawasan industri di seberang Markas Besar Viper.
+
+Setelah menyelesaikan pemetaan sasaran dari atap, Ryu Jin menyerahkan posisi pengawasan kepada salah satu mantan pengedar obat yang telah dilatih menggunakan perangkat Min-ho. Jin kemudian turun melalui tangga darurat sisi belakang untuk bergabung dengan Kang Dojin di lorong bawah.
+
+Di atas atap gedung tinggi yang berjarak empat puluh lima meter dari kompleks markas musuh, salah satu dari tiga mantan pengedar obat sekolah berdiri bersiap di balik tembok parapet. Di atas pundaknya, ia menyandarkan senjata bazoka taktis buatan Choi Min-ho—**Pelontar Pulsa Magnetik EMP**.
+
+Saat masa pelatihan satu minggu di Distrik Utara, Ryu Jin telah mengalkulasikan skenario ini dan meminta Min-ho merakit bom pemicu ledakan medan magnetik portabel untuk melumpuhkan gardu listrik gedung dalam situasi darurat.
+
+Pemuda di atap mengunci koordinat gardu induk Markas Besar Viper.
+
+*BOOM—BZZZZT!*
+
+Sebuah pulsa ledakan medan magnet membumbung tinggi menembus malam! Seketika, lonjakan gelombang elektromagnetik menghantam seluruh sirkuit listrik kompleks Markas Besar Viper!
+
+*KRAK! KABOOM!*
+
+Seluruh lampu sorot, penerangan halaman, dan sistem listrik markas mati total! Kompleks pergudangan raksasa itu terlempar ke dalam kegelapan pekat yang membeku. Hampir dua ratus anggota Viper dan oknum polisi korup yang berada di dalam halaman tersentak kebingungan, pupil mata mereka membeku karena tak siap menghadapi perubahan mendadak dari terang benderang menjadi gelap gulita.
+
+***
+
+*VROOOOM-RUMBLE!*
+
+Di bawah kegelapan malam, raungan mesin sepeda motor balap berkapasitas besar meledak keras dari lorong seberang gerbang!
+
+Kang Dojin mengendalikan kemudi sepeda motor dengan cengkeraman liar, sementara Ryu Jin duduk di jok belakang dengan mata biru yang menyala dingin di dalam kegelapan. Di seberang gerbang besi markas, sebuah mobil *pick-up* berbak miring terparkir tepat di tepi trotoar sebagai landasan loncat alami.
+
+Dojin memutar gas kemudinya hingga batas maksimal!
+
+*SHIIIN!*
+
+Sepeda motor melesat kencang bagaikan peluru hitam, menghantam bak miring mobil *pick-up*, dan membumi terbang melompati pagar tembok setinggi empat meter!
+
+Di udara—di tengah rotasi penerbangan sepeda motor di atas halaman markas—Ryu Jin yang duduk di belakang mencabut dua pisau dagger lempar dari rompinya dalam lecutan gerak milidetik!
+
+*WHOSH! WHOSH!*
+
+Dua bilah dagger berkecepatan kinetik tinggi meluncur membelah kegelapan, mengincar dua leher oknum polisi korup yang memegang senjata laras panjang di atas menara pengawas!
+
+*SLICCCK! SLICCCK!*
+
+*CRASH!*
+
+Kedua dagger menghantam bahu penopang senjata mereka dengan presisi. Laras senapan terangkat menjauhi halaman, sementara dua polisi korup itu roboh di balik pagar menara akibat luka dalam dan syok benturan.
+
+***
+
+*BRUUUK!*
+
+Sepeda motor Dojin mendarat sempurna di lantai beton halaman utama. Pasukan Viper yang berada dalam kegelapan tersentak cemas ketika dua senapan laras panjang jatuh berdentang dari menara pengawas.
+
+Belum sempat musuh menguasai kepanikan...
+
+*KABOOM!*
+
+Sebuah truk pasir raksasa yang dikendarai oleh gerombolan dua puluh berandal jalanan mendadak menerobos dan merobohkan gerbang besi utama! Pintu gerbang hancur berantakan dihantam sasis berat truk pasir!
+
+Oknum-oknum polisi korup yang berada di balkon lantai dua langsung mengarahkan pistol *handgun* mereka, melepaskan tembakan beruntun ke arah truk pasir!
+
+*DOR! DOR! DOR!*
+
+Namun dari atas atap gedung seberang, pemuda penembak EMP meluncurkan proyektil kedua—**Bom Asap Kimia Stun** buatan Choi Min-ho—tepat ke tengah-tengah kerumunan halaman musuh!
+
+*BAM!*
+
+Kepulan asap beracun berwarna hijau pekat meledak seketika memenuhi seluruh halaman beton! Gas perih itu membakar mata dan merusak indra pendengaran ratusan anggota Viper, membuat barisan terdepan mengalami mata perih, batuk hebat, dan kehilangan orientasi selama belasan detik! Efeknya cepat menipis karena angin malam menyapu halaman terbuka.
+
+***
+
+Saat kepulan asap hijau perlahan menyapu menghilang disapu angin malam, dua puluh berandal jalanan melompat turun dari atas truk pasir, melancarkan bantai garis depan terhadap anak buah Viper yang masih kebingungan!
+
+"Hancurkan mereka!" jerit para berandal jalanan sambil mengayunkan rantai besi dan balok kayu.
+
+Sepuluh berandal melangkah mengapit Kang Dojin yang langsung mengamuk melesat di lantai dasar halaman utama. Dojin mengayunkan pipa besi tebal di tangannya dengan beringas dan bertenaga destruktif luar biasa!
+
+*BAM! KRAK!*
+
+Setiap sabetan pipa besi Dojin meremukkan rusuk, mematahkan tulang bahu, dan meretakkan tengkorak anggota Viper yang menghadang di depannya! Tulang-tulang musuh hancur berkerut saat Dojin mengamuk bagaikan monster tak terhentikan di halaman bawah!
+
+Sementara itu, tepat saat sepeda motor mendarat, Ryu Jin melompat gesit dari jok belakang. Memanfaatkan pilar beton dan sasis tangga besi luar gedung, Jin memanjat naik secara cepat ke selasar balkon terbuka di lantai dua.
+
+***
+
+Dari selasar balkon lantai dua, Ryu Jin tidak membuang waktu. Mata birunya yang dingin mengunci keberadaan dua belas oknum polisi korup bersenjata laras panjang di lantai atas.
+
+Jemari Jin menari cepat, melontarkan dua belas pisau dagger lemparnya dengan akurasi presisi yang mematikan!
+
+*WHOSH! SLICCK!*
+
+Dua belas lecutan dagger Jin menghantam tepat di urat leher dua belas oknum polisi tersebut, menembus bahu, lengan penembak, dan titik saraf di pangkal leher sebelum mereka sempat memperoleh garis tembak!
+
+Usai membersihkan lantai atas, Ryu Jin berdiri di tepi pagar balkon, menatap ke arah pertempuran sengit di halaman bawah. Dari sudut ketinggian balkon, Jin mencabut dua puluh empat pisau dagger lempar berikutnya!
+
+*WHOSH! WHOSH! WHOSH!*
+
+Hujan pisau dagger meluncur membelah kegelapan dari atas balkon menuju halaman bawah! Ryu Jin bertindak sebagai pelindung udara taktis, melempar dagger presisi untuk merobek leher para perwira elit Viper yang mencoba memutus dan mengepung garis tempur Dojin serta anak-anak berandal dari belakang!
+
+Dua puluh empat dagger meluncur tanpa meleset satu pun! Seluruh tiga puluh delapan dagger mengenai sasaran fungsionalnya—dua di menara, dua belas di balkon, dan dua puluh empat di halaman. Tidak semuanya menewaskan target, tetapi setiap lemparan memutus serangan yang dapat membahayakan Dojin dan aliansi jalanan. Dua dagger terakhir tetap tersimpan di rompi Jin bersama sepuluh baut baja tebal di pinggangnya.
+
+Ryu Jin melompat turun dari balkon lantai dua, mendarat tenang di ambang pintu masuk utama gedung lantai dasar. Jin menoleh pada Dojin yang telah merobohkan puluhan musuh bersimbah darah di halaman bawah, lalu menatap lurus ke dalam kegelapan koridor gedung Markas Besar Viper.
+
+"Pembersihan area luar selesai," ucap Jin pelan dan dingin. "Saatnya masuk ke ruangan pusat."
+
+---
+
+## BAB 31: EKSEKUSI DI DERMAGA BAYANGAN
+
+**Pukul 21.50 WIB.**
+**Dermaga Bayangan, Pesisir Luar Distrik Utara.**
+
+Kabut pesisir berembus dingin di antara barisan kontainer berkarat dan tiang-tiang tiang dermaga tua. Di atas beton pelabuhan yang basah, **Detektif Lee Tae-gyu** terkulai berdarah dengan kedua tangan terikat rantai besi tebal ke tiang pancang.
+
+Di hadapan Tae-gyu, seorang perwira Viper bersenjata pistol berdiri siap menarik pelatuk. Di sampingnya, berdiri sosok bertubuh tinggi besar berjaket kulit hitam dengan parang tebal di bahunya—**Kwak Sang-cheol**, tangan kanan Kang Tae-shik sekaligus orang terkuat kedua di Sindikat Viper.
+
+"Lencana dan idealisme hukummu berakhir malam ini, Detektif," desis sang pengeksekusi sambil mengarahkan moncong pistol tepat ke kening Tae-gyu.
+
+Tae-gyu memuntahkan darah segar dari bibirnya, menatap dingin tanpa ketakutan.
+
+Namun, sebelum jari pengeksekusi sempat menekan pelatuk...
+
+*SSSHT!*
+
+Dari balik atas kontainer di sisi lain pelabuhan, sebuah proyektil mikro seukuran lebah meluncur senyap menembus malam! Drone mikro **The Walking Dead** buatan Choi Min-ho yang berada di ketinggian atap kontainer mendarat tanpa suara tepat di bahu kanan sang pengeksekusi!
+
+*BZZZT! KRAK!*
+
+Seketika, lecutan cairan asam berkonsistensi tinggi meledak melarutkan armor dan jaringan kulit sang pengeksekusi! Muatan korosif berdaya rendah menyembur terarah ke tangan pemegang pistol dan sambungan pelindung bahunya. Senjata itu terlepas, sementara pria tersebut roboh menjerit dengan lengan terbakar parah. Cairan terbatas di dalam drone tidak cukup untuk menyebar ke seluruh tubuh.
+
+***
+
+*VROOOOM!*
+
+Raungan dua sepeda motor meledak dari celah lorong kontainer! **Han Shin-woo dan Park Jin-woo** melompat dari motor pertama, sedangkan **Lee Jae-hyeok** menerobos dari jalur kanan dengan motor kedua. Ketiganya langsung menerjang garis penjagaan musuh!
+
+Seluruh anggota tempur Viper di dermaga tersentak syok melihat kematian tragis rekan mereka dan kedatangan mendadak tim pemburu!
+
+"Bantai mereka!" jerit anak buah Viper sambil mencabut parang.
+
+Namun Han Shin-woo melesat maju bagaikan harimau yang menerkam mangsanya di tengah kegelapan!
+
+*SET! BAM! KRAK!*
+
+Gerakan Shin-woo meluncur dalam efisiensi anatomis mutlak tanpa membuang tenaga sedikit pun. Setiap pukulan telapak tangan dan lecutan siku Shin-woo menghantam presisi di titik-titik saraf vital—karotis leher, pergelangan sendi, dan persendian lutut musuh.
+
+Saraf-saraf musuh lumpuh seketika, tulang sendi mereka patah berderet saat Shin-woo melumpuhkan empat anggota Viper dalam hitungan lima detik!
+
+Di saat yang sama, Choi Min-ho melompat turun dari atas kontainer sisi lain. Min-ho merapatkan sarung tangan laser kanannya ke arah rantai besi tebal yang membendung kedua tangan Detektif Lee Tae-gyu!
+
+*BZZZT! KRAK!*
+
+Daya lecutan laser itu telah diperkuat oleh Min-ho atas saran taktis Ryu Jin saat masa pelatihan—memungkinkan pemotong termal tersebut melemahkan satu mata rantai tanpa mencederai pergelangan sandera. Min-ho menahan sinar pada satu titik selama dua belas detik sebelum sambungannya berpijar merah dan patah. Belenggu Tae-gyu akhirnya terputus, dan Park Jin-woo bersama Lee Jae-hyeok segera memapah tubuh Tae-gyu berdiri seimbang, sementara sisa barisan penjaga di sekeliling dermaga telah dirobohkan sepenuhnya!
+
+***
+
+Hanya dalam hitungan satu menit, seluruh barisan anak buah Viper di dermaga telah roboh membasahi beton. Kini, hanya tersisa satu sosok yang masih berdiri tegak: **Kwak Sang-cheol**.
+
+Park Jin-woo memastikan kondisi Tae-gyu, lalu menoleh pada Shin-woo dan Min-ho.
+
+"Shin-woo! Min-ho!" seru Jin-woo dengan tegas. "Kalian berdua pergilah bantu Jin dan Dojin di Distrik Barat sekarang!"
+
+Shin-woo menahan langkahnya. "Bagaimana dengan kalian?"
+
+"Melalui rute tol pesisir cepat, kalian bisa tiba di Distrik Barat kurang dari empat puluh menit!" tegas Jae-hyeok dengan mata memburu. "Biarkan keparat Kwak Sang-cheol ini menjadi urusan kami berdua! Kami harus membalaskan dendam kematian tiga saudara kami!"
+
+Melihat tekad dendam membara di mata Jin-woo dan Jae-hyeok, Shin-woo mengangguk paham.
+
+"Jaga diri kalian," ucap Shin-woo pelan.
+
+Shin-woo dan Choi Min-ho melompat ke atas sepeda motor balap, memutar gas hingga batas maksimal, dan melesat kencang membelah malam menuju Distrik Barat untuk menyusul Ryu Jin dan Dojin.
+
+***
+
+Di dermaga sepi yang kini menyisakan Jin-woo, Jae-hyeok, Tae-gyu, dan Kwak Sang-cheol.
+
+Park Jin-woo dan Lee Jae-hyeok membantu Detektif Lee Tae-gyu berdiri menyandar di kontainer.
+
+"Detektif," ucap Jin-woo berat sambil menatap Tae-gyu. "Jangan halangi kami. Pria itu memimpin pembantaian tiga saudara kami."
+
+Tae-gyu memaksa tubuhnya berdiri lebih tegak meski darah masih mengalir dari pelipisnya.
+
+"Lumpuhkan dia, tetapi jangan bunuh," tegas Tae-gyu. "Kwak Sang-cheol harus hidup untuk bersaksi tentang perdagangan manusia, pembakaran Oasis, dan keterlibatan Park Min-hyuk. Jika kalian mengeksekusinya sekarang, semua bukti itu ikut mati."
+
+Kwak Sang-cheol tertawa menyeringai sombong sambil menurunkan parang tebal dari bahunya.
+
+"Hahaha!" kekeh Kwak Sang-cheol dengan suara serak yang memuakkan. "Kalian masih memikirkan hukum setelah tiga saudara kalian kupenggal?" ejeknya. "Kelemahan seperti itulah yang akan membunuh kalian malam ini!"
+
+"Keparat!" raung Jae-hyeok sambil melesat maju mengayunkan balok baja!
+
+*PRANG!*
+
+Pertarungan sengit penuh dendam meletus seketika di tepi dermaga! Parang tebal Kwak Sang-cheol beradu keras dengan balok baja Jin-woo dan Jae-hyeok dalam lecutan percikan api!
+
+Sementara itu, Detektif Lee Tae-gyu memungut pistol yang terlepas dari tangan pengeksekusi yang masih mengerang di atas beton. Dengan pandangan mata yang tajam dan sikap tubuh terlatih, Tae-gyu berdiri mengawasi sekeliling lorong kontainer—siap menembak mati setiap pasukan bantuan Viper yang berani mendekat!
 
 ---
 
@@ -2644,11 +2844,11 @@ Memanfaatkan momentum tertahannya belati musuh, Jin memutar pergelangan tangan k
 
 Jaket dan kemeja Kang Tae-shik robek panjang, memancarkan garis darah. Sang Komandan Tempur tersantak mundur, terkejut melihat seberapa cepat pemuda bermata biru ini membalikkan keadaan.
 
-"Kau..." geram Kang Tae-shik. 
+"Kau..." geram Kang Tae-shik.
 
-Pertukaran pukulan dan sayatan kembali meledak! Keduanya bergerak bagaikan bayangan mematikan di bawah cahaya lampu darurat yang berkedip. Tae-shik melontarkan rentetan serangan belati dan tendangan berat, namun Jin meliuk dengan presisi matematis. 
+Pertukaran pukulan dan sayatan kembali meledak! Keduanya bergerak bagaikan bayangan mematikan di bawah cahaya lampu darurat yang berkedip. Tae-shik melontarkan rentetan serangan belati dan tendangan berat, namun Jin meliuk dengan presisi matematis.
 
-Beberapa kali bilah Tae-shik berhasil menyapu lengan dan rusuk Jin, namun dengan kontrol refleks kontraksi ototnya, Jin mampu meminimalisir kedalaman luka. Sayatan itu hanya merobek kulit luar, sama sekali tidak melukai jaringan otot atau pembuluh darah vital. 
+Beberapa kali bilah Tae-shik berhasil menyapu lengan dan rusuk Jin, namun dengan kontrol refleks kontraksi ototnya, Jin mampu meminimalkan kedalaman luka. Sayatan itu hanya merobek kulit luar, sama sekali tidak melukai jaringan otot atau pembuluh darah vital.
 
 Sebaliknya, setiap lecutan dagger Jin menyayat presisi pada titik-titik anatomis yang menguras stamina Tae-shik. Darah segar menetes dari bahu, paha, dan dada sang Komandan Tempur. Untuk pertama kalinya, Kang Tae-shik dipaksa bertahan di sarangnya sendiri!
 
@@ -2670,11 +2870,11 @@ Kepala Polisi Distrik Barat, Park Min-hyuk, mengokang pistol *handgun*-nya denga
 
 Dojin mengertakkan giginya. Ia menatap lengan kanan dan betis kanannya yang berdarah. Dua tembakan berhasil menyerempetnya saat ia mencoba menarik Nenek menjauh dari garis tembak tadi. Lukanya terasa panas membakar.
 
-Mata liar Dojin menyapu lantai. Ia melihat sebuah pisau lipat taktis milik salah satu pengawal yang tewas tergeletak tak jauh darinya. 
+Mata liar Dojin menyapu lantai. Ia melihat sebuah pisau lipat taktis milik salah satu pengawal yang tewas tergeletak tak jauh darinya.
 
-Seketika, ingatan Dojin kembali pada sesi latihan di bukit rongsokan Distrik Utara—saat Ryu Jin mengajarkan teknik melempar pisau dagger dengan memperhitungkan sudut putaran dan titik berat logam. 
+Seketika, ingatan Dojin kembali pada sesi latihan di bukit rongsokan Distrik Utara—saat Ryu Jin mengajarkan teknik melempar pisau dagger dengan memperhitungkan sudut putaran dan titik berat logam.
 
-Dojin memungut pisau itu. Matanya menyala dengan aura iblis jalanan. 
+Dojin memungut pisau itu. Matanya menyala dengan aura iblis jalanan.
 
 *Aku bukan Jin yang bisa melempar presisi di urat leher,* batin Dojin liar. *Tapi selama benda ini menancap di tubuhnya... itu sudah cukup!*
 
@@ -2696,11 +2896,11 @@ Park Min-hyuk menjerit histeris. Bilah pisau itu menancap dalam menembus tempuru
 
 ***
 
-Kesempatan emas itu tidak dibiarkan lewat sedetik pun. 
+Kesempatan emas itu tidak dibiarkan lewat sedetik pun.
 
 Menyadari musuhnya goyah, Kang Dojin meraung bagaikan monster buas! Ia melesat menerobos ke depan, meninggalkan semua naluri pertahanan diri.
 
-Meskipun kesakitan dan berlutut, insting bertahan hidup Park Min-hyuk memaksanya mengangkat moncong pistol yang gemetar, mengarahkannya tepat ke wajah Dojin yang menerjang maju. 
+Meskipun kesakitan dan berlutut, insting bertahan hidup Park Min-hyuk memaksanya mengangkat moncong pistol yang gemetar, mengarahkannya tepat ke wajah Dojin yang menerjang maju.
 
 Di dalam mata liarnya, Dojin melihat arah moncong senjata api hitam itu terkunci padanya. Petarung waras akan menghindar. Tetapi saat ini, Dojin adalah iblis gila yang tidak lagi mengenal rasa takut pada peluru demi menyelamatkan Neneknya.
 
@@ -2716,23 +2916,23 @@ Namun, darah tidak memuncrat. Lengan Dojin tidak hancur.
 
 *TING! TING! TING!*
 
-Suara logam beradu keras bergema! 
+Suara logam beradu keras bergema!
 
-Di balik jaket Dojin yang robek terkoyak peluru, terlihat kilau baja kehitaman. Ternyata, sebelum penyerbuan malam ini, Dojin diam-diam telah meminta dan memakai **Sarung Tangan Pelindung Modifikasi buatan Choi Min-ho** di lengan kirinya—sebuah *gauntlet* lapis baja ringan namun setebal pelat tempur yang terbuat dari titanium-grafena! 
+Di balik jaket Dojin yang robek terkoyak peluru, terlihat kilau baja kehitaman. Ternyata, sebelum penyerbuan malam ini, Dojin diam-diam telah meminta dan memakai **Sarung Tangan Pelindung Modifikasi buatan Choi Min-ho** di lengan kirinya—sebuah *gauntlet* lapis baja ringan namun setebal pelat tempur yang terbuat dari titanium-grafena!
 
 Park Min-hyuk membelalak tak percaya. Waktu seakan berhenti.
 
-Dojin sudah berada tepat di depannya. Seringai Dojin melebar mengerikan, memamerkan deretan giginya bagaikan serigala kelaparan. 
+Dojin sudah berada tepat di depannya. Seringai Dojin melebar mengerikan, memamerkan deretan giginya bagaikan serigala kelaparan.
 
 Menggunakan lengan kirinya yang terbungkus sarung tangan baja, Dojin menarik otot bahunya hingga batas maksimal, lalu mengayunkan sebuah sikutan maut dengan rotasi pinggul penuh tenaga!
 
 *BDUUUAGH! KRAAAK!*
 
-Sikutan berlapis baja titanium-grafena itu menghantam rahang samping Park Min-hyuk dengan kekuatan destruktif yang menghancurkan tulang! Suara remuxan tulang wajah terdengar mengerikan.
+Sikutan berlapis baja titanium-grafena itu menghantam rahang samping Park Min-hyuk dengan kekuatan destruktif yang menghancurkan tulang! Suara remukan tulang wajah terdengar mengerikan.
 
 Tubuh Kepala Polisi Distrik Barat itu terlempar membentur dinding dengan rahang yang melesak parah. Ia jatuh terkulai ke lantai beton. Matanya putih. Darah segar mengalir deras dari mulut dan hidungnya. Park Min-hyuk tak sadarkan diri, tulang rahang dan tengkoraknya retak parah, meninggalkannya dalam ambang kematian atau cacat permanen seumur hidup.
 
-Dojin berdiri di tengah ruangan dengan napas memburu. Ia menatap lekat musuh yang telah dirobohkannya, lalu menoleh ke arah sudut ruangan. 
+Dojin berdiri di tengah ruangan dengan napas memburu. Ia menatap lekat musuh yang telah dirobohkannya, lalu menoleh ke arah sudut ruangan.
 
 "Nenek..." panggil Dojin parau, aura membunuhnya lenyap seketika, berganti dengan kelegaan seorang cucu.
 
@@ -2798,7 +2998,7 @@ Lengan kanan Kang Tae-shik—yang masih menggenggam belati—terputus di udara d
 
 ***
 
-"Guh...!" 
+"Guh...!"
 
 Belum sempat rasa syok dan penderitaan menyapa syaraf otak Kang Tae-shik, lengan kiri sang Pemimpin Viper refleks melayang mencoba memukul kepala Jin!
 
@@ -2856,7 +3056,7 @@ Ryu Jin menatap lurus mata Kang Tae-shik dengan sepasang mata biru yang dingin, 
 
 "Begitulah cara ular membunuh mangsanya," ucap Jin pelan dan dingin.
 
-Kepala Kang Tae-shik terkulai ke samping. Napasnya terhenti sepenuhnya. 
+Kepala Kang Tae-shik terkulai ke samping. Napasnya terhenti sepenuhnya.
 
 Pemimpin Tertinggi Sindikat Viper sekaligus orang terkuat di Viper... resmi tewas di atas tanah kekuasaannya sendiri.
 
@@ -2866,7 +3066,7 @@ Pemimpin Tertinggi Sindikat Viper sekaligus orang terkuat di Viper... resmi tewa
 
 Di dalam Aula Utama lantai dua Markas Besar Viper.
 
-Aroma darah yang pekat mengendap tebal di udara. Di balik dinding beton ujung aula, jasad Kang Tae-shik—Pemimpin Tertinggi Viper—terkulai mati dalam posisi duduk dengan dua pisau dagger menancap di dadanya. 
+Aroma darah yang pekat mengendap tebal di udara. Di balik dinding beton ujung aula, jasad Kang Tae-shik—Pemimpin Tertinggi Viper—terkulai mati dalam posisi duduk dengan dua pisau dagger menancap di dadanya.
 
 Di ambang pintu aula, Ryu Jin melangkah tenang mendekati Kang Dojin yang baru saja membebaskan Neneknya dari ruangan penyekapan lantai dasar. Nenek Dojin yang menangis haru memeluk cucunya, sementara Dojin memapah bahu Nenek dengan rasa lega.
 
@@ -2874,7 +3074,7 @@ Namun, sebelum mereka sempat melangkah keluar...
 
 *DUM! DUM! DUM!*
 
-Suara hentakan sepatu tempur bergema serentak dari arah tangga utama! 
+Suara hentakan sepatu tempur bergema serentak dari arah tangga utama!
 
 Tiga puluh orang pasukan tempur berseragam taktis hitam bersenjata tongkat baja dan rantai bergerigi menerobos masuk, mengurung seluruh sudut Aula Utama dalam formasi pengepungan rapat!
 
@@ -2906,7 +3106,7 @@ Seo Jin-wook menyipitkan matanya tajam, tersinggung oleh sikap meremehkan Dojin.
 
 Ryu Jin melangkah satu tapak ke depan. Mata birunya yang dingin memaku Seo Jin-wook dan tiga puluh pasukan elit Cerberus di hadapannya.
 
-"Mulai hari ini dan kedepannya..." suara Jin mengalir datar, dingin, dan mutlak. "...mereka akan dihakimi."
+"Mulai hari ini dan ke depannya..." suara Jin mengalir datar, dingin, dan mutlak. "...mereka akan dihakimi."
 
 ***
 
@@ -2918,7 +3118,7 @@ Raungan mesin sepeda motor balap meledak membelah sepi saat **Han Shin-woo** dan
 
 Namun, saat Shin-woo dan Min-ho melangkah turun, pemandangan di halaman beton membuat Choi Min-ho tertegun diam.
 
-Halaman beton itu dipenuhi lebih dari seratus lima puluh jasad anggota Viper dan oknum polisi korup yang bergelimpangan dalam genangan darah. 
+Halaman beton itu dipenuhi lebih dari seratus lima puluh jasad anggota Viper dan oknum polisi korup yang bergelimpangan dalam genangan darah.
 
 Choi Min-ho mencabut masker saringan gas di wajahnya, matanya membelalak heran menatap kehancuran masif tersebut.
 
@@ -2970,7 +3170,7 @@ Kuartet Predator—**Ryu Jin, Kang Dojin, Han Shin-woo, dan Choi Min-ho**—kini
 
 Han Shin-woo menyapu pandangannya pada Nenek Dojin yang berlindung di belakang bahu Dojin, lalu mengunci pandangannya pada tiga puluh pasukan elit Sindikat Cerberus yang mengurung ruangan.
 
-"Detektif Lee Tae-gyu sudah aman di Dermaga Bayangan," ucap Shin-woo pelan dari ambang pintu. "Jin-woo dan Jae-hyeok sedang membereskan Kwak Sang-cheol."
+"Detektif Lee Tae-gyu sudah aman di Dermaga Bayangan," ucap Shin-woo pelan dari ambang pintu. "Jin-woo dan Jae-hyeok sedang menahan Kwak Sang-cheol sampai unit polisi jujur tiba."
 
 Namun, di saat Dojin mengangguk lega dan Jin mengencangkan pegangan daggernya...
 
@@ -3016,7 +3216,7 @@ Kembali ke Aula Utama Markas Besar Viper.
 
 *KRAK!*
 
-Sendi-sendi pergelangan tangan Choi Min-ho bergetar hebat. Napasnya keluar berat dan memburu melalui hidungnya, rahangnya menegang keras hingga gigi-giginya berderak memekakkan telinga. 
+Sendi-sendi pergelangan tangan Choi Min-ho bergetar hebat. Napasnya keluar berat dan memburu melalui hidungnya, rahangnya menegang keras hingga gigi-giginya berderak memekakkan telinga.
 
 Wajah Min-ho yang biasanya tenang, analitis, dan penuh perhitungan sains kini terdistorsi oleh amarah gila dan dendam membara yang telah tertahan selama lima tahun!
 
@@ -3100,11 +3300,11 @@ Pertempaan puncak Kuartet Predator melawan Sindikat Cerberus resmi meletus hebat
 
 Aula Utama lantai dua Markas Besar Viper meledak dalam pertempuran brutal.
 
-Han Shin-woo melangkah maju bagaikan hantu senyap. Sepasang matanya tajam menargetkan titik-titik vital belasan perwira elit Cerberus yang merangsek mendekat. 
+Han Shin-woo melangkah maju bagaikan hantu senyap. Sepasang matanya tajam menargetkan titik-titik vital belasan perwira elit Cerberus yang merangsek mendekat.
 
 *WHOSH! PAK! PAK! KRAK!*
 
-Langkah kaki Shin-woo mengalir fleksibel, meliuk di antara sabetan parang musuh. Jemari tangannya meluncur presisi—menotok persendian karotis, merobek saraf plexus di ketiak musuh, dan menghantam ulu hati dua perwira terdepan secara beruntun! 
+Langkah kaki Shin-woo mengalir fleksibel, meliuk di antara sabetan parang musuh. Jemari tangannya meluncur presisi—menotok persendian karotis, merobek saraf plexus di ketiak musuh, dan menghantam ulu hati dua perwira terdepan secara beruntun!
 
 Dua anggota Cerberus kejang-kejang hebat sebelum jatuh tersungkur memutarkan mata mereka. Shin-woo bergerak tanpa emosi, memusnahkan setiap lini pertahanan musuh di garis depan dengan seni pertarungan anatomi yang mematikan.
 
@@ -3148,7 +3348,7 @@ Min-ho menyunggingkan seringai dingin. Ia mengangkat tangan kanannya, mengaktifk
 
 *BZZZZT!*
 
-Sinar laser merah pekat bersuhu ribuan derajat Celsius membara dari pergelangan tangan Min-ho, menerangi kegelapan aula dengan pendar sains mematikan!
+Busur pemotong termal merah-oranye bersuhu tinggi menyala dari pergelangan tangan Min-ho. Jangkauannya tidak lebih dari tiga puluh sentimeter dan daya aktifnya hanya bertahan beberapa detik, tetapi cukup untuk merusak logam pada pertarungan jarak dekat.
 
 "Pabrik kimia lima tahun lalu..." desis Min-ho dingin. "...akan kubayar lunas malam ini!"
 
@@ -3242,11 +3442,11 @@ Saat Seo Jin-wook terhuyung mundur dalam rasa sakit yang membakar, Min-ho bangki
 
 Min-ho menatap Seo Jin-wook yang memuntahkan darah, membalas seluruh ejekan musuh dengan kata-kata dingin dan berbobot:
 
-"Ayahku mati mempertahankan integritas hukum yang jujur..." suara Min-ho mengalir tenang, tajam, dan merendahkan. "...sedangkan kau... hanyalah anjing suruhan korup yang mati meleleh di atas sampah!"
+"Ayahku mati mempertahankan integritas hukum yang jujur..." suara Min-ho mengalir tenang, tajam, dan merendahkan. "...sedangkan kau... hanyalah anjing suruhan korup yang mati di atas reruntuhan organisasimu sendiri!"
 
 *SET!*
 
-Min-ho mencabut proyektil drone mikro **The Walking Dead** dari sakunya. 
+Min-ho mencabut proyektil drone mikro **The Walking Dead** dari sakunya.
 
 Sebelumnya, drone mikro ini membutuhkan waktu pemindaian sensor termal otomatis yang memakan waktu. Namun Min-ho telah memodifikasinya sehingga **dapat dilemparkan secara manual dan menempel instan pada target**!
 
@@ -3262,7 +3462,7 @@ Drone mikro menempel presisi di kulit leher Seo Jin-wook, melepaskan semprotan c
 
 "AGHHH! LEHERKU! LEHERKU!"
 
-Jeritan mengerikan meledak dari Seo Jin-wook saat cairan asam pekat melarutkan kulit, jaringan otot, dan pembuluh darah lehernya seketika! Armor mantel peraknya melarut bagaikan lilin, jasad sang eksekutor kejang-kejang hebat sebelum jatuh tersungkur mati meleleh di atas lantai beton!
+Jeritan mengerikan meledak dari Seo Jin-wook ketika jarum mikro drone menembus sisi lehernya dan menyuntikkan senyawa korosif dalam dosis terkonsentrasi. Reaksi itu tidak melelehkan seluruh tubuh, tetapi merusak pembuluh besar dan jaringan di sekitar saluran napas. Seo Jin-wook mencengkeram lehernya, kehilangan keseimbangan, lalu roboh ketika aliran darah dan udaranya terputus.
 
 Eksekutor pembunuh Jaksa Choi... tewas secara mengenaskan di tangan putra korbannya sendiri.
 
@@ -3300,7 +3500,7 @@ Aula Utama Markas Besar Viper mendadak hening total. Seluruh perwira musuh dan p
 
 Ryu Jin melangkah tenang mendekati Kang Dojin, Han Shin-woo, dan Choi Min-ho. Mata biru Jin menyapu keseluruhan aula yang telah bersih, menangkap remang cahaya fajar yang perlahan menyingsing di luar jendela.
 
-"Kematian Kepala Polisi, Pemimpin Viper, dan Wakil Ketua Cerberus akan memicu kegaduhan besar di seluruh negeri besok pagi," suara Jin mengalir datar dan dingin. "Kita bergerak ke Dermaga Bayangan sekarang sebelum perbatasan ditutup."
+"Penangkapan Kepala Polisi serta kematian Pemimpin Viper dan Wakil Ketua Cerberus akan memicu kegaduhan besar di seluruh negeri besok pagi," suara Jin mengalir datar dan dingin. "Kita bergerak ke Dermaga Bayangan sekarang sebelum perbatasan ditutup."
 
 Kuartet Predator melesat cepat meninggalkan kompleks Markas Viper. Di halaman luar, Jin menitipkan Nenek Dojin kepada tiga remaja mantan pengedar obat sekolah dan aliansi berandal jalanan, menugaskan mereka mengawal Nenek kembali ke Distrik Barat dengan aman.
 
@@ -3310,7 +3510,7 @@ Empat puluh menit kemudian. Dermaga Bayangan, pesisir luar Distrik Utara.
 
 Kabut pesisir berembus dingin di atas beton dermaga yang basah. Dua anggota Geng Hydra—Park Jin-woo dan Lee Jae-hyeok—sudah tidak ada di lokasi. Usai menuntaskan pertempuran mereka, keduanya telah kembali ke penginapan rahasia untuk memulihkan diri.
 
-Di tepi dermaga, **Detektif Lee Tae-gyu** berdiri bersama beberapa personel kepolisian jujur yang sedang mengamankan area kontainer. Saat melihat kedatangan Ryu Jin dan Kuartet Predator, Tae-gyu melangkah menghampiri mereka.
+Di tepi dermaga, **Detektif Lee Tae-gyu** berdiri bersama beberapa personel kepolisian jujur yang sedang mengamankan area kontainer. Kwak Sang-cheol telah diborgol dalam kondisi terluka setelah Jin-woo dan Jae-hyeok melumpuhkannya. Kesaksiannya, rekaman kamera Min-ho, dan barang bukti perdagangan manusia kini berada dalam penguasaan Tae-gyu. Saat melihat kedatangan Ryu Jin dan Kuartet Predator, Tae-gyu melangkah menghampiri mereka.
 
 Tae-gyu menunjuk ke arah kapal kargo raksasa tanpa bendera yang bersiap melepaskan jangkar di ujung dermaga.
 
@@ -3348,7 +3548,7 @@ Hanya dalam waktu empat puluh menit peretasan jaringan perbankan gelap dan penge
 
 "Total aset bersih mereka 142 miliar won," lapor Min-ho.
 
-Mata biru Ryu Jin menatap lurus angka tersebut tanpa getar kekaguman sedikit pun. 
+Mata biru Ryu Jin menatap lurus angka tersebut tanpa getar kekaguman sedikit pun.
 
 "Sebarkan sepuluh persennya secara anonim ke seluruh panti asuhan dan yayasan anak terlantar di Korea," perintah Jin dingin. "Sisanya, ubah seluruhnya menjadi mata uang kripto terenkripsi (*USDT dan Bitcoin*)."
 
@@ -3362,15 +3562,15 @@ Tiga ponsel musuh tenggelam selamanya di dasar lautan malam yang pekat.
 
 Sementara itu, di Markas Besar Kepolisian Nasional, Seoul.
 
-Di dalam ruangan sidang kaca kedap suara, suasana berlangsung amat tegang. **Detektif Lee Tae-gyu** berdiri tegak dalam posisi siap di hadapan meja panjang yang diisi oleh jajaran perwira tinggi dan **Menteri Pertahanan Korea Selatan**.
+Di dalam ruangan sidang kaca kedap suara, suasana berlangsung amat tegang. **Detektif Lee Tae-gyu** berdiri tegak dalam posisi siap di hadapan meja panjang yang diisi oleh jajaran Komisi Kepolisian Nasional dan kepala pengawasan internal.
 
 Laporan pembantaian massal di Markas Viper dan Dermaga Bayangan telah mengguncang jajaran petinggi negara.
 
-"Detektif Lee Tae-gyu!" suara Menteri Pertahanan bergema berat dan menekan. "Bagaimana mungkin kau berada di lokasi kejadian tepat saat Markas Besar Viper dan Dermaga Bayangan rata dengan tanah?! Siapa orang-orang yang bertanggung jawab atas kehancuran ini?!"
+"Detektif Lee Tae-gyu!" suara kepala pengawasan internal bergema berat dan menekan. "Bagaimana mungkin kau berada di lokasi kejadian tepat saat Markas Besar Viper dan Dermaga Bayangan rata dengan tanah?! Siapa orang-orang yang bertanggung jawab atas kehancuran ini?!"
 
-Detektif Tae-gyu menatap lurus mata sang Menteri tanpa sedikit pun menunjukkan celah keraguan. 
+Tae-gyu menatap lurus mata kepala pengawasan internal tanpa sedikit pun menunjukkan keraguan.
 
-"Laporan resmi saya tetap sama, Menteri," balas Tae-gyu tenang dan tegas. "Semua itu adalah pertempuran internal antar-sindikat kejahatan yang meledak akibat perebutan dermaga. Pihak kami hanya tiba di lokasi untuk mengamankan sisa kontainer kejahatan mereka."
+"Laporan resmi saya tetap sama," balas Tae-gyu dengan tenang. "Semua itu adalah pertempuran internal antarsindikat yang meledak akibat perebutan dermaga. Pihak kami tiba setelahnya untuk mengamankan lokasi dan barang bukti."
 
 Penyelidikan internal berlangsung sengit selama berjam-jam, namun tak satu pun bukti digital atau fisik yang mampu mengaitkan nama Ryu Jin, Kang Dojin, Han Shin-woo, maupun Choi Min-ho.
 
@@ -3382,7 +3582,7 @@ Melalui saluran Telegram terenkripsi khusus, Ryu Jin membuka komunikasi rahasia 
 
 *["Jin-woo,"* tulis Ryu Jin dalam pesan terenkripsi. * "Mulai hari ini, kau dan kelompokmu adalah tim bayangan lokal kami di Distrik Barat. Pimpin aliansi jalanan dan buat sebuah dompet kripto (Crypto Wallet) sekarang."]*
 
-Di sebuah penginapan rahasia Distrik Barat, Park Jin-woo yang membaca pesan tersebut langsung mengangguk patuh, menyalin alamat dompet kripto yang baru dibuatnya lalu mengiringkannya kembali ke Telegram Jin.
+Di sebuah penginapan rahasia Distrik Barat, Park Jin-woo yang membaca pesan tersebut langsung mengangguk patuh, menyalin alamat dompet kripto yang baru dibuatnya lalu mengirimkannya kembali ke Telegram Jin.
 
 Dua jam kemudian...
 
@@ -3414,7 +3614,7 @@ Sebuah **Fasilitas Latihan Tempur Bawah Tanah** (*Underground Combat Training Fa
 
 *BZZZT!*
 
-Park Jin-woo merekam video dan foto seluruh aktivitas restoran, kebahagiaan Nenek, serta fasilitas latihan bawah tanah mereka, lalu mengiringkannya melalui saluran Telegram terenkripsi kepada Ryu Jin.
+Park Jin-woo merekam video dan foto seluruh aktivitas restoran, kebahagiaan Nenek, serta fasilitas latihan bawah tanah mereka, lalu mengirimkannya melalui saluran Telegram terenkripsi kepada Ryu Jin.
 
 *["Bos Jin, restoran dan fasilitas latihan bawah tanah telah beroperasi penuh selama satu bulan ini. Nenek dalam kondisi sangat sehat dan aman. Kami semua terus melatih diri sesuai perintahmu."]*
 
@@ -3430,15 +3630,15 @@ Di dalam Aula Gedung Kepolisian Nasional, Seoul. (1 Tahun Setelah Kejadian Jatuh
 
 *FLASSH! FLASSH! FLASSH!*
 
-Ratusan kilatan lampu kamera wartawan meledak memenuhi ruangan konferensi pers nasional. Di balik podium utama berlambang elang emas kepolisian, berdiri sosok **Lee Tae-gyu**—yang kini telah resmi dipromosikan menjadi **Ketua Detektif Nasional Korea Selatan**.
+Ratusan kilatan lampu kamera wartawan meledak memenuhi ruangan konferensi pers nasional. Di balik podium utama berlambang elang emas kepolisian, berdiri sosok **Lee Tae-gyu**—yang kini telah resmi dipromosikan menjadi **Kepala Satuan Tugas Nasional Antisindikat**.
 
-Setelah sidang internal dan perundingan panjang yang diatur oleh Menteri Pertahanan demi mencegah kepanikan publik serta membersihkan nama baik Kepolisian Distrik Barat, sebuah penyataan resmi akhirnya disampaikan ke seluruh pelosok negeri.
+Setelah sidang internal dan perundingan panjang yang diawasi Komisi Kepolisian Nasional dan kejaksaan khusus untuk memastikan kasus tersebut tidak kembali ditutup oleh jaringan lama Park Min-hyuk, sebuah penyataan resmi akhirnya disampaikan ke seluruh pelosok negeri.
 
-Ketua Detektif Lee Tae-gyu menyesuaikan mikrofonnya, menatap ratusan laras kamera televisi dengan nada suara yang tenang, wibawa, dan penuh ketegasan.
+Kepala Satuan Tugas Lee Tae-gyu menyesuaikan mikrofonnya, menatap ratusan laras kamera televisi dengan nada suara yang tenang, wibawa, dan penuh ketegasan.
 
 "Pernyataan resmi Kepolisian Nasional atas tragedi satu tahun lalu," suara Lee Tae-gyu mengalir jernih melintasi siaran langsung nasional. "Kejadian berdarah di Distrik Barat adalah aksi perlawanan mutlak terhadap Sindikat Mafia Viper yang terbukti melakukan penculikan, pencucian uang, dan upaya eksekusi terhadap pejabat kepolisian."
 
-Tae-gyu menarik napas pelan, melanjutkan skenario terencana yang telah disusun bersama Menteri Pertahanan:
+Tae-gyu menarik napas pelan, melanjutkan skenario terencana yang telah disusun bersama Komisi Kepolisian Nasional:
 
 "Pihak kepolisian bersama warga lokal Distrik Barat yang selama ini tertindas... berhasil memukul mundur dan meratakan seluruh gembong kejahatan tersebut. Kami menyampaikan permohonan maaf atas jatuhnya korban jiwa akibat kekejaman sindikat musuh, dan memberikan rasa terima kasih serta perlindungan penuh 100 persen bagi warga lokal Distrik Barat yang telah berani membantu penegakan hukum."
 
@@ -3448,7 +3648,7 @@ Seluruh ruangan wartawan gempar oleh tepuk tangan riuh. Di layar televisi publik
 
 Sementara itu, di sebuah ruangan gelap markas persembunyian Sindikat Mafia Internasional.
 
-Layar-layar hologram besar memancarkan foto-foto bukti pecahan beton, sisa tebasan bilah presisi, dan bekas lelehan cairan asam di bekas Markas Besar Viper. 
+Layar-layar hologram besar memancarkan foto-foto bukti pecahan beton, sisa tebasan bilah presisi, dan bekas lelehan cairan asam di bekas Markas Besar Viper.
 
 Kabar kehancuran total Viper dan kematian tragis Seo Jin-wook—Wakil Ketua Cerberus—telah menyebar bagaikan api liar di seluruh dunia bawah tanah internasional. Agen-agen jalanan dan broker intelijen pasar gelap dari Jepang dan Asia Tenggara berkumpul menganalisis dosier pertempuran tersebut.
 
@@ -3458,11 +3658,11 @@ Di tengah ruangan, seorang broker intelijen menghempaskan selembar berkas lapora
 
 Broker itu menyalakan rokoknya, melanjutkan dengan suara serak:
 
-"Sebelum nyawanya melayang, tim kita melakukan introgasi secara sangat kasar padanya. Kwon Tae-seok membocorkan fakta bahwa kejatuhan Viper dan kematian Seo Jin-wook diakibatkan oleh **empat orang pemuda misterius**."
+"Sebelum nyawanya melayang, tim kita melakukan interogasi secara sangat kasar padanya. Kwon Tae-seok membocorkan fakta bahwa kejatuhan Viper dan kematian Seo Jin-wook diakibatkan oleh **empat orang pemuda misterius**."
 
-Empat lembar sketsa buram dilemparkan ke atas meja—memuat ciri fisik dan gaya bertarung dari **Ryu Jin (Sang Arsitek Taktis bermata biru), Kang Dojin (Algojo bertangan baja), Han Shin-woo (Penotok Anatomi), dan Choi Min-ho (Perakit Sains)**. 
+Empat lembar sketsa buram dilemparkan ke atas meja—memuat ciri fisik dan gaya bertarung dari **Ryu Jin (Sang Arsitek Taktis bermata biru), Kang Dojin (Algojo bertangan baja), Han Shin-woo (Penotok Anatomi), dan Choi Min-ho (Perakit Sains)**.
 
-Sesuai takdirnya, tak ada satu kata pun dalam introgasi tersebut yang menyebutkan keberadaan seorang Nenek.
+Sesuai takdirnya, tak ada satu kata pun dalam interogasi tersebut yang menyebutkan keberadaan seorang Nenek.
 
 "Empat orang ini..." desis pemimpin sindikat internasional. "Mereka adalah ancaman baru yang harus dihancurkan."
 
@@ -3492,7 +3692,7 @@ Di saat yang bersamaan. Ribuan kilometer dari daratan Korea.
 
 *BOOM!*
 
-Sebuah ledakan granat meletus di gerbang luar sebuah kompleks benteng berdinding baja hitam yang sangat mewah dan berteknologi tinggi! 
+Sebuah ledakan granat meletus di gerbang luar sebuah kompleks benteng berdinding baja hitam yang sangat mewah dan berteknologi tinggi!
 
 Tiga puluh orang pasukan penyergap berseragam taktis serba hitam bersenjata senapan serbu otomatis dan katana baja menerobos masuk! Mereka adalah gabungan dari **Pasukan Khusus Angkatan Darat Korea**—yang dikirim secara rahasia oleh Komandan Besar Angkatan Darat Korea (pengkhianat korup yang bermain di balik layar)—dan gembong **Yakuza Jepang** yang dendam akibat terputusnya pasokan tambang gelap Cerberus!
 
@@ -3500,27 +3700,29 @@ Tiga puluh orang pasukan penyergap berseragam taktis serba hitam bersenjata sena
 
 Namun, di dalam halaman utama benteng yang megah...
 
-Halaman utama markas ORCA telah dirancang khusus oleh Ryu Jin sebagai **zona anti-penyergapan taktis**—dilingkupi barisan pilar-pilar baja beton anti-peluru tebal di sisi kiri dan kanan lorong masuk utama. Desain arsitektur ini memungkinkan para petinggi ORCA bergerak meliuk, berlindung, dan membalas serangan musuh secara santai bagaikan bermain *hide and seek* di tengah kecamuk hujan peluru!
+Halaman utama markas ORCA telah dirancang Ryu Jin sebagai **zona anti-penyergapan taktis**. Pilar-pilar beton bertulang berdiri di kedua sisi lorong masuk utama, memberi para anggota ORCA jalur berlindung dan sudut tembak silang ketika serangan datang.
 
 Enam sosok berdiri tenang menyambut penyergapan musuh tanpa rasa gentar sedikit pun.
 
-Kuartet Predator—**Ryu Jin, Kang Dojin, Han Shin-woo, Choi Min-ho**—kini didampingi oleh **dua rekan baru**: seorang **penembak jitu (*Sniper*) jenius asal Thailand** dan seorang **mantan tentara bayaran buas asal Rusia**.
+Kuartet Predator—**Ryu Jin, Kang Dojin, Han Shin-woo, Choi Min-ho**—kini didampingi oleh **dua rekan utama**: **Asura**, penembak jitu asal Thailand, dan **Kapten Lee Han-joon**, pemimpin sisa unit Grey Hawk sekaligus Direktur Operasi Taktis ORCA.
 
 Enam Petinggi Utama ORCA bertarung memanfaatkan pilar-pilar anti-peluru dengan sangat santai!
 
 *RATATATATA!*
 
-Kang Dojin terkekeh gila di balik pilar beton seraya mengayunkan **dua senapan submesin TMP** di kedua tangannya, memuntahkan hujan peluru liar yang meratakan barisan depan musuh! 
+Kang Dojin terkekeh gila di balik pilar beton seraya mengayunkan **dua senapan submesin TMP** di kedua tangannya, memuntahkan hujan peluru liar yang meratakan barisan depan musuh!
 
 *WHOSH! WHOSH!*
 
 Han Shin-woo meliuk lincah dari celah bayangan pilar, melontarkan **kunai dan shuriken** presisi yang menancap di titik-titik saraf vital para Yakuza Jepang tanpa membuang tembakan senjata api!
 
-Di saat tembakan peluru musuh mengarah ke dadanya, **Choi Min-ho** melangkah tenang keluar dari balik pilar. 
+Di saat tembakan peluru musuh mengarah ke dadanya, **Choi Min-ho** melangkah tenang keluar dari balik pilar.
 
 *TING! TING! TING!*
 
-Peluru-peluru musuh memantul jatuh di atas pakaian Min-ho! Di balik jaket taktisnya, Min-ho mengenakan **Baju Zirah Pelindung Ringan Anti-Peluru** buatan ciptaannya sendiri—sebuah armor komposit mutakhir berbahan paduan matriks **Uranium Terdeplesi (*Depleted Uranium Alloy*)**, anyaman serat **Grafena-Titanium**, serta susunan lapisan polimer **Kevlar-Aramid**! Kepadatan sains mutakhir tersebut sanggup menyerap gelombang kinetik dan memantulkan tembakan kaliber berat bagaikan debu tanpa menambah beban berat pada tubuh Min-ho.
+Beberapa peluru menghantam pelat dada Min-ho dan pecah pada permukaan keramik-komposit di balik jaketnya. Zirah itu memadukan pelat boron karbida, anyaman serat aramid, dan lapisan penahan serpihan. Bobotnya tetap terasa dan perlindungannya terbatas pada beberapa tembakan kaliber menengah.
+
+Energi benturan tidak menghilang. Min-ho terdorong mundur dengan napas tercekik dan memar yang langsung menjalar di balik rusuknya. Satu tembakan lagi pada titik yang sama dapat memecahkan pelat tersebut.
 
 Min-ho mengacungkan senjata ciptaan terbarunya—**GUNCO (Gun Nuclear Min-ho)**, sebuah pistol laser senyap yang memadukan partikel mikro teknologi nuklir!
 
@@ -3534,7 +3736,7 @@ Dari balkon lantai 5 markas, Asura sang *Sniper* asal Thailand melepaskan tembak
 
 Di tengah pertempuran yang dilumpuhkan secara santai dan mematikan itu...
 
-Ryu Jin melangkah tenang menembus kibatan peluru di antara lorong pilar. Di tangan kirinya, Ryu Jin memegang ponsel terenkripsi... **sedang menelepon via Telegram dengan Ketua Detektif Nasional Lee Tae-gyu**!
+Ryu Jin melangkah tenang menembus kibatan peluru di antara lorong pilar. Di tangan kirinya, Ryu Jin memegang ponsel terenkripsi... **sedang menelepon via Telegram dengan Kepala Satuan Tugas Nasional Antisindikat Lee Tae-gyu**!
 
 *["Jin? Kau mendengarku?"]* suara Tae-gyu terdengar dari balik speaker ponsel. *["Aku baru saja mendapat intelijen rahasia. Komandan Besar Angkatan Darat Korea secara diam-diam mengirimkan—"]*
 
@@ -3596,7 +3798,7 @@ Mereka baru saja menempuh perjalanan laut dan darat sejauh ribuan kilometer meni
 
 Ryu Jin melangkah mendekat. Mantel hitamnya basah oleh air hujan, namun sepasang mata biru es pemuda itu tetap tenang dan fokus. "Buka pesannya."
 
-Min-ho mengetuk layar peranti sakunya. 
+Min-ho mengetuk layar peranti sakunya.
 
 Suara khas, berat, dan tegas milik Detektif Lee Tae-gyu terdengar dari speaker kecil:
 
@@ -3628,9 +3830,9 @@ Roda takdir di Lembah Hitam resmi berputar.
 
 ## BAB 43: DARAH DI GERBANG PHRA KHANN
 
-Malam makin larut di perbatasan Black Valley. 
+Malam makin larut di perbatasan Black Valley.
 
-Kuartet Predator menempati sebuah kamar penginapan kayu tua berdinding jamur di pinggiran lembah—sebuah markas sementara untuk memulihkan stamina dan memetakan taktik sebelum menyusup ke Desa Phra Khann. 
+Kuartet Predator menempati sebuah kamar penginapan kayu tua berdinding jamur di pinggiran lembah—sebuah markas sementara untuk memulihkan stamina dan memetakan taktik sebelum menyusup ke Desa Phra Khann.
 
 Di dalam kamar yang temaram oleh lampu minyak, Kang Dojin duduk di atas kursi kayu lapuk. Jemari tangannya yang kekar sibuk menggosokkan batu pengasah pada ujung pipa besi tebalnya yang telah dipotong miring secara tajam. Gesekan besi dan batu memercikkan bunga api halus, mengubah senjata tumpul itu menjadi sebuah senjata tajam (sajam) hibrida—pipa besi berujung bilah tombak mematikan yang siap menembus daging musuh.
 
@@ -3669,7 +3871,7 @@ Seorang komandan regu eksekusi aliansi kartel melangkah ke tengah lapangan, meng
 
 "Keluarkan tikus-tikus keamanan dari persembunyian kalian!" teriakan komandan kartel bergema kejam. "Keluarkan anggota Grey Hawk dari desa ini sekarang juga! Jika dalam tiga hitungan mereka tidak muncul, kami akan membumihanguskan tempat ini dan menyembelih seluruh warga desa saat ini juga!"
 
-Di dalam bayangan rumah panggung terbesar, Kapten Lee Han-joon menahan napasnya. Di sekelilingnya, sembilan anggota Grey Hawk memegang erat senjata mereka. 
+Di dalam bayangan rumah panggung terbesar, Kapten Lee Han-joon menahan napasnya. Di sekelilingnya, sembilan anggota Grey Hawk memegang erat senjata mereka.
 
 Pasukan Grey Hawk sebenarnya berjumlah dua puluh orang. Namun, sepuluh anggota lainnya saat ini sedang tersebar di luar desa, terbagi menjadi tiga tim kecil untuk mengintai basis logistik masing-masing kartel. Aliansi kartel sama sekali tidak tahu berapa jumlah pasti anggota Grey Hawk yang ada di perbatasan.
 
@@ -3695,7 +3897,7 @@ Asura melangkah keluar. Ia tidak membawa satu pun senjata, membaur sempurna deng
 
 "Tidak ada anggota Grey Hawk lain!" tegas Asura dengan suara nyaring yang didengar seluruh musuh. "Sepuluh orang itulah seluruh anggota Grey Hawk yang selama ini mengganggu distribusi kalian dan bersembunyi di balik warga kami!"
 
-Saat berbicara, mata Asura melempar kode isyarat yang sangat cepat ke arah Kapten Han-joon. 
+Saat berbicara, mata Asura melempar kode isyarat yang sangat cepat ke arah Kapten Han-joon.
 
 Asura sengaja berbohong untuk mengunci perhatian musuh, memastikan kartel percaya bahwa seluruh kekuatan Grey Hawk telah ditangkap, sehingga sepuluh anggota Grey Hawk yang berada di luar tetap tersembunyi sebagai kartu truf penyerangan dari balik bayangan.
 
@@ -3713,7 +3915,7 @@ Komandan kartel lalu mencengkeram bahu Kapten Lee Han-joon secara kasar. "Kecual
 
 Sembilan anggota kartel mencabut golok-golok tebal dan tajam berkilat, mengacungkannya tinggi-tinggi di atas leher sembilan prajurit Grey Hawk.
 
-"JANGAN! AKAN AKU BUNUH KALIAN SEMUA!" Kapten Han-joon memberontak gila-gilaan, urat lehernya menonjol saat ditarik paksa oleh empat penjaga kartel. 
+"JANGAN! AKAN AKU BUNUH KALIAN SEMUA!" Kapten Han-joon memberontak gila-gilaan, urat lehernya menonjol saat ditarik paksa oleh empat penjaga kartel.
 
 Namun teriakannya tenggelam oleh tawa iblis pasukan kartel.
 
@@ -3733,7 +3935,7 @@ Kepala-kepala kesembilan prajurit itu ditancapkan di atas tombak kayu di pintu g
 
 Ruang interogasi bawah tanah itu berbau anyir darah dan mesiu.
 
-Kapten Lee Han-joon digantung dengan kedua tangan diborgol rantai besi ke langit-langit beton. Wajahnya babak belur, seragam taktis abu-abunya robek dan basah oleh darah dari pelipisnya. 
+Kapten Lee Han-joon digantung dengan kedua tangan diborgol rantai besi ke langit-langit beton. Wajahnya babak belur, seragam taktis abu-abunya robek dan basah oleh darah dari pelipisnya.
 
 *BUAGH!*
 
@@ -3756,7 +3958,7 @@ Han-joon bernapas tersengal, darah mengalir dari sudut bibirnya. Ia memicingkan 
 
 Kabut tebal menggantung rendah di atas vegetasi liar Lembah Hitam, menyaring cahaya matahari pagi menjadi pendar abu-abu yang dingin. Udara perbatasan yang lembap itu membawa aroma tanah basah, jelaga sisa pembakaran, serta bau anyir busuk dari darah manusia yang telah mengering selama dua hari di bawah terik khatulistiwa.
 
-Kuartet Predator melangkah keluar dari rimbunnya hutan kanopi, tiba di perimeter luar Desa Phra Khann tepat pada hari ketujuh sesuai jadwal awal yang disampaikan Detektif Lee Tae-gyu. Namun, tidak ada permukiman damai yang menyambut mereka. 
+Kuartet Predator melangkah keluar dari rimbunnya hutan kanopi, tiba di perimeter luar Desa Phra Khann tepat pada hari ketujuh sesuai jadwal awal yang disampaikan Detektif Lee Tae-gyu. Namun, tidak ada permukiman damai yang menyambut mereka.
 
 Gerbang kayu jati tebal yang menjadi benteng pelindung desa telah hancur berkeping-keping, terbelah akibat hantaman kendaraan tempur lapis baja. Pecahan kayu dan serpihan besi berserakan di atas lumpur hitam. Namun, bukan puing gerbang yang menghentikan langkah mereka, melainkan apa yang dipajang di atas sisa reruntuhan tersebut.
 
@@ -3770,7 +3972,7 @@ Kang Dojin membeku di tempatnya. Tangannya yang menopang pipa besi di pundak men
 
 Han Shin-woo melangkah maju dua langkah, raut wajahnya mengikis habis sisa ketenangan. Matanya menatap luka tebasan di pangkal tulang leher salah satu kepala. "Ditebas paksa dari belakang dengan bilah tebal berbobot berat. Bukan tewas dalam pertempuran terbuka... Mereka dieksekusi paksa dalam posisi berlutut."
 
-Choi Min-ho menatap nanar ke arah menara radio desa di kejauhan yang telah tumbang terlipat dua. Jemarinya dengan cepat mengetuk layar peranti taktis di genggamannya, namun layar itu hanya memantulkan garis statis mati. 
+Choi Min-ho menatap nanar ke arah menara radio desa di kejauhan yang telah tumbang terlipat dua. Jemarinya dengan cepat mengetuk layar peranti taktis di genggamannya, namun layar itu hanya memantulkan garis statis mati.
 
 "Sinyal dan frekuensi radio di desa ini diputus total sejak dua hari lalu," bisik Min-ho dengan keringat dingin membasahi pelipisnya. "Jin... informasi tujuh hari itu adalah jebakan musuh. Kartel menyerang lima hari lebih cepat dari perkiraan."
 
@@ -3802,7 +4004,7 @@ Pada pecahan detik yang sama, rentetan desisan tembakan berperedam suara menyusu
 
 Sepuluh proyektil mematikan menghantam tanpa ampun. Sepuluh tentara kartel lainnya tumbang seketika di tempat dengan dada, leher, dan pelipis yang tembus oleh tembakan serempak dari sepuluh prajurit Grey Hawk yang bersembunyi di posisi pengintaian.
 
-Sebelas musuh tewas dalam waktu kurang dari satu detik.
+Sebelas tembakan terkoordinasi menghantam dalam satu rentetan singkat. Musuh yang tersisa baru menyadari serangan itu setelah rekan-rekan mereka roboh hampir bersamaan.
 
 Di atas bukit, Asura dan sepuluh prajurit Grey Hawk dengan cepat menarik gerendel senapan runduk mereka untuk membidik empat anggota kartel yang tersisa. Namun, sebelum jari mereka sempat menyentuh pelatuk untuk melepaskan tembakan kedua... pemandangan di bawah lapangan membuat napas mereka tercekat.
 
@@ -3816,13 +4018,13 @@ Bersamaan dengan itu, Kang Dojin menarik pipa besi berujung sajamnya dari punggu
 
 Di sudut lain pada detik yang sama, Han Shin-woo melesat dua langkah ke depan. Jemarinya menjentikkan sebuah *kunai* baja hitam yang telah ia siapkan di balik balutan kain pergelangan tangannya. Bilah kunai itu menembus laring tenggorokan musuh ketiga dengan presisi bedah saraf, membungkam jeritan pria itu dalam sekejap.
 
-Sementara di sisi kanan, Choi Min-ho menekan tombol pemicu pada sebuah tabung logam kecil seukuran baterai—bom asam mini hasil rakitan terbarunya—lalu melemparkannya tepat ke dada musuh keempat. 
+Sementara di sisi kanan, Choi Min-ho menekan tombol pemicu pada sebuah tabung logam kecil seukuran baterai—bom asam mini hasil rakitan terbarunya—lalu melemparkannya tepat ke dada musuh keempat.
 
 Saat tabung itu membentur rompi pelindung musuh, pemicu keduanya aktif seketika tanpa menimbulkan dentuman keras.
 
 *SHHHHKKKK!*
 
-Cairan asam pekat bertekanan tinggi menyembur senyap. Dalam sekejap, separuh tubuh musuh—mulai dari bahu, dada, hingga rusuknya—meleleh mendesis mengerikan hingga memperlihatkan tulang yang menghitam. Tubuh yang rusak separuh itu ambruk ke tanah tanpa sempat mengeluarkan suara.
+Ampul korosif pecah pada sambungan rompi dan bahu musuh. Cairannya merusak pelindung luar serta menimbulkan luka bakar kimia berat yang memaksanya menjatuhkan senjata. Tubuh pria itu ambruk sambil menjerit dan mencengkeram sisi tubuh yang berasap.
 
 Hening total menyelimuti lapangan.
 
@@ -3866,7 +4068,7 @@ Ryu Jin beralih menatap Min-ho. "Min-ho, kuasai frekuensi mereka dari perimeter 
 
 Min-ho mengangguk tenang sambil memeriksa peranti sakunya. "Beres, Jin. Begitu kalian masuk, komunikasi mereka akan buta total."
 
-Terakhir, pandangan Ryu Jin tertuju pada Asura. 
+Terakhir, pandangan Ryu Jin tertuju pada Asura.
 
 "Asura, jangan bergabung dengan barisan depan penerobos maupun tim sniper luar," lanjut Jin dengan nada berbisik namun dingin. "Tetap bergerak di sekitar kami bertiga. Sembunyikan keberadaanmu sepenuhnya di dalam bayangan, dan lindungi titik buta kami dari belakang saat kami mendobrak ke ruang interogasi bawah tanah."
 
@@ -3892,7 +4094,7 @@ Itu adalah kepala tetua Desa Phra Khann.
 
 "Tunggu, anak muda," suara sang tetua bergetar, berbicara dalam bahasa perbatasan yang diterjemahkan dengan cepat oleh Asura.
 
-Sersan Park dan para prajurit Grey Hawk menundukkan kepala penuh hormat. Sang tetua membentangkan gulungan kertas itu di atas kap mesin jip militer berkarat. 
+Sersan Park dan para prajurit Grey Hawk menundukkan kepala penuh hormat. Sang tetua membentangkan gulungan kertas itu di atas kap mesin jip militer berkarat.
 
 Itu adalah denah arsitektur dan cetak biru lengkap dari bekas pabrik semen di lembah barat.
 
@@ -3952,7 +4154,7 @@ Ryu Jin merapatkan mantel hitamnya. Udara panas Lembah Hitam mulai membakar tana
 
 "Misi kita bukan sekadar menyelamatkan Kapten Han-joon," ucap Ryu Jin seraya menatap ke arah barat, tempat kekuasaan tiga kartel bercokol. "Kita akan menghancurkan markas kebanggaan Aliansi Mamba, memotong taring mereka, dan memastikan tidak ada satu pun bajingan di sana yang menyangka bahwa pembalasan bisa datang secepat ini."
 
-Rombongan penyerbu menaiki kendaraan tempur mereka. Deru mesin truk dan jip militer meraung membelah sunyinya hutan perbatasan. 
+Rombongan penyerbu menaiki kendaraan tempur mereka. Deru mesin truk dan jip militer meraung membelah sunyinya hutan perbatasan.
 
 Penyerbuan besar menuju markas Aliansi Tiga Kartel resmi dimulai.
 
@@ -3986,7 +4188,7 @@ Dalam pecahan detik, tabung itu meledakkan kepulan gas asap pekat berwarna abu-a
 
 "Gas beracun! Pasang masker—"
 
-Teriakan panik lebih dari dua puluh penjaga gerbang terputus seketika oleh batuk berdarah dan kepanikan massal. 
+Teriakan panik lebih dari dua puluh penjaga gerbang terputus seketika oleh batuk berdarah dan kepanikan massal.
 
 Di luar gerbang, Ryu Jin, Kang Dojin, Han Shin-woo, dan Asura telah mengenakan respirator mikro taktis dan kacamata pelindung kedap udara—perangkat penangkal khusus yang dirancang Min-ho untuk menetralkan racun kimianya sendiri. Tanpa hambatan jarak pandang maupun pernapasan, empat bayangan itu melesat masuk ke dalam kabut beracun bagai malaikat pencabut nyawa.
 
@@ -4002,13 +4204,13 @@ Saat asap mulai menipis ditiup angin lembah, mereka melepas respirator masing-ma
 
 Shin-woo menyeka bercak darah di sarung tangannya, menyunggingkan senyum tipis yang mematikan. "Serahkan padaku, Jin. Mereka tidak akan sempat melihat ke arah bawah tanah."
 
-Shin-woo berbalik, memberi kode pada Sersan Park dan seluruh prajurit Grey Hawk yang baru saja merangsek masuk melalui gerbang yang telah bersih. 
+Shin-woo berbalik, memberi kode pada Sersan Park dan seluruh prajurit Grey Hawk yang baru saja merangsek masuk melalui gerbang yang telah bersih.
 
 "Grey Hawk, buka formasi tempur terbuka!" seru Shin-woo memimpin barisan depan.
 
 *DOR! DOR! DOR! DOR!*
 
-Rentetan tembakan otomatis senapan serbu Grey Hawk meledak serempak, menggema memekakkan telinga di seluruh penjuru kompleks semen. Shin-woo melesat ke tengah lapangan terbuka, memicu alarm darurat manual pabrik secara sengaja dan menembak mati setiap komandan regu musuh yang keluar dari barak. 
+Rentetan tembakan otomatis senapan serbu Grey Hawk meledak serempak, menggema memekakkan telinga di seluruh penjuru kompleks semen. Shin-woo melesat ke tengah lapangan terbuka, memicu alarm darurat manual pabrik secara sengaja dan menembak mati setiap komandan regu musuh yang keluar dari barak.
 
 Ratusan prajurit Kartel Mamba yang panik sontak terdistraksi total. Mengira bahwa serangan musuh terkonsentrasi penuh di halaman depan, ratusan tentara bayaran itu berhamburan keluar dari hanggar dan gedung logistik, memusatkan seluruh daya tembak dan perhatian mereka ke arah Shin-woo dan pasukan Grey Hawk.
 
@@ -4076,7 +4278,7 @@ Ryu Jin memasukkan satu tangannya ke saku mantel, lalu menatap Kapten Han-joon d
 
 "Kapten Han-joon," panggil Jin pelan, matanya beralih melirik Sarith yang gemetar memegang belatinya di sudut ruangan. "Kau ingin menyelesaikan bajingan ini dengan tanganmu sendiri, atau menyerahkannya padaku? Sejujurnya, aku sangat ingin melihat tabung asam buatan Min-ho melelehkan daging ular menjijikkan ini hidup-hidup."
 
-Han-joon menyeka darah di sudut bibirnya dengan punggung tangannya yang bengkak. Sepasang mata elang perwira militer Korea itu mendadak menyala liar oleh api amarah yang telah ia tahan selama dua hari penuh. 
+Han-joon menyeka darah di sudut bibirnya dengan punggung tangannya yang bengkak. Sepasang mata elang perwira militer Korea itu mendadak menyala liar oleh api amarah yang telah ia tahan selama dua hari penuh.
 
 Ia menegakkan tubuhnya yang penuh luka, mengambil sebilah belati militer dari sarung pinggang mayat pengawal di sampingnya.
 
@@ -4090,7 +4292,7 @@ Dua binatang buas siap saling mencabik di dasar bunker.
 
 ## BAB 47: KESEIMBANGAN YANG DIHANCURKAN
 
-Udara di dalam ruang interogasi bawah tanah itu membeku. 
+Udara di dalam ruang interogasi bawah tanah itu membeku.
 
 Kapten Lee Han-joon mencengkeram belati militernya erat-erat, bersiap melangkah maju menyerang Sarith dengan sisa-sisa tenaga yang ia miliki. Namun, baru satu langkah kakinya menjejak, sebuah tangan dengan sarung tangan kulit hitam terulur di depannya.
 
@@ -4104,7 +4306,7 @@ Sebelum Han-joon sempat menyelesaikan kalimatnya, tangan kanan Ryu Jin yang seja
 
 *SNAP!*
 
-Bukan senjata api yang ditarik, melainkan jentikan pergelangan tangan yang tak kasat mata. Dua kilatan logam melesat membelah udara ruang bawah tanah dengan kecepatan supersonik, memotong jarak lima meter tanpa suara desingan peluru.
+Bukan senjata api yang ditarik, melainkan jentikan pergelangan tangan yang tak kasat mata. Dua baut baja berat melesat dengan kecepatan tinggi, memotong jarak lima meter sebelum Sarith sempat mengubah kuda-kudanya.
 
 *CRACK! CRACK!*
 
@@ -4122,11 +4324,11 @@ Di sudut pintu masuk, Asura mematung di tempat. Matanya yang tajam melebar tak p
 
 *‘Siapa sebenarnya dia...?!’* bisik Asura dalam benaknya yang terguncang hebat. *‘Tadi itu... kenapa tiba-tiba ada peluru tak bersuara yang menghantam dan meremukkan kedua rusuk Sarith dari jarak itu?!’*
 
-Asura meneliti lebih dekat ke arah tubuh Sarith yang menggeliat memegangi dadanya. Matanya menyipit saat melihat benda yang merobek kemeja sang bos kartel. 
+Asura meneliti lebih dekat ke arah tubuh Sarith yang menggeliat memegangi dadanya. Matanya menyipit saat melihat benda yang merobek kemeja sang bos kartel.
 
 Bukan proyektil timah. Itu adalah dua buah baut baja tebal bersudut enam.
 
-Asura secara refleks memutar ulang rekaman memori gerak lambat di kepalanya—bagaimana jemari Ryu Jin menjentikkan dua baut dari dalam saku mantel tanpa mengambil ancang-ancang bahu sama sekali. Jentikan jari yang mampu melipatgandakan energi kinetik hingga setara dengan kecepatan peluru kaliber .45, tepat menghantam titik anatomi tulang rusuk musuh hingga memuntahkan darah dengan akurasi mutlak.
+Asura secara refleks memutar ulang rekaman memori gerak lambat di kepalanya—bagaimana jemari Ryu Jin menjentikkan dua baut dari dalam saku mantel tanpa mengambil ancang-ancang bahu sama sekali. Lecutan pergelangan yang terlatih memberi kedua baut energi cukup untuk mematahkan rusuk pada jarak dekat, terutama karena Jin membidik celah tanpa pelindung. Akurasinya tetap mengerikan, tetapi daya rusaknya berasal dari massa baut, jarak pendek, dan titik benturan yang dipilih.
 
 Keringat dingin menetes di tengkuk Asura. Sebagai pembunuh bayaran dan penembak jitu berpengalaman di Lembah Hitam, ia tahu bahwa sosok bermata biru es di sampingnya ini bukan lagi sekadar manusia taktis biasa.
 
@@ -4216,7 +4418,7 @@ Namun, tidak ada pintu keluar bagi mereka.
 
 *PHUT! PHUT! PHUT! PHUT!*
 
-Dari bukit kapur di kejauhan, enam penembak runduk Grey Hawk melepaskan tembakan beruntun dengan kecepatan dan presisi yang mematikan. Setiap letusan peredam suara merobek udara, memecahkan kepala tentara kartel yang mencoba memanjat pagar beton. 
+Dari bukit kapur di kejauhan, enam penembak runduk Grey Hawk melepaskan tembakan beruntun dengan kecepatan dan presisi yang mematikan. Setiap letusan peredam suara merobek udara, memecahkan kepala tentara kartel yang mencoba memanjat pagar beton.
 
 Pada saat yang sama, Han Shin-woo melesat bagai bayangan maut dari balik kepulan debu. Bersama tiga prajurit kombatan Grey Hawk, Shin-woo menyapu bersih siapa pun yang masih bernyawa. Belati dan peluru mereka menembus titik vital musuh tanpa ampun, membantai seluruh sisa pasukan Mamba hingga lapangan pabrik semen itu banjir oleh darah dan bau mesiu.
 
@@ -4230,7 +4432,7 @@ Saat tim penyerbu bersiap mengamankan kendaraan untuk kembali ke Phra Khann, Taw
 
 Asura melangkah maju, menatapnya dengan waspada. "Bicaralah yang jelas. Ada apa dengan desa?!"
 
-Tawan menelan ludah dengan tenggorokan kering, ketakutan yang teramat besar tergambar di matanya. 
+Tawan menelan ludah dengan tenggorokan kering, ketakutan yang teramat besar tergambar di matanya.
 
 "Dua puluh menit yang lalu, sebelum kalian mendobrak ke ruang bawah tanah..." suara Tawan bergetar hebat, "aku tidak sengaja menguping percakapan radio rahasia dari komandan regu Kartel *Black Ant*. Mereka mencemooh strategi Mamba yang dianggap terlalu lambat dan bodoh karena membiarkan warga desa tetap hidup sebagai umpan!"
 
@@ -4270,15 +4472,15 @@ Pemuda itu berlari membabi buta menuju pelataran balai desa yang sedang terbakar
 
 Dojin, Shin-woo, dan pasukan Grey Hawk langsung menyebar ke seluruh penjuru desa, memburu dan membantai setiap tentara Kartel Black Ant yang masih tersisa di pemukiman dengan amarah yang tak terbendung. Suara letusan senjata dan erangan sekarat prajurit kartel menggema membalaskan dendam warga.
 
-Di tengah kobaran api yang melahap desa, Ryu Jin melangkah perlahan mendekati jasad sang tetua. 
+Di tengah kobaran api yang melahap desa, Ryu Jin melangkah perlahan mendekati jasad sang tetua.
 
 Mata biru es pemuda itu menatap wajah damai sang tetua yang kini terbujur kaku, lalu mengedarkan pandangannya ke sekeliling puing-puing desa yang membara.
 
 Puluhan warga desa yang selamat—para pria yang terluka, wanita yang mendekap anak-anak mereka, dan para pemuda yang masih menggenggam senjata darurat—berkumpul di belakang Tawan. Mata mereka menatap Ryu Jin dan kelompoknya dengan campuran rasa takut, duka mendalam, namun tersirat kepasrahan dan harapan yang tak tergoyahkan. Mereka telah kehilangan segalanya, tidak punya tempat lagi untuk pergi di tanah tanpa hukum ini.
 
-Ryu Jin merapatkan mantel hitamnya yang ternoda jelaga api. 
+Ryu Jin merapatkan mantel hitamnya yang ternoda jelaga api.
 
-Otak sang Arsitek Taktis membaca seluruh peta geopolitik di kepalanya. Desa Phra Khann yang hancur ini berada di titik silang paling strategis di seluruh Lembah Hitam—jalur arteri yang menghubungkan rute logistik ketiga kartel. 
+Otak sang Arsitek Taktis membaca seluruh peta geopolitik di kepalanya. Desa Phra Khann yang hancur ini berada di titik silang paling strategis di seluruh Lembah Hitam—jalur arteri yang menghubungkan rute logistik ketiga kartel.
 
 Tempat ini tidak boleh ditinggalkan sebagai abu tak bertuan.
 
@@ -4305,7 +4507,7 @@ Dari darah dan abu kehancuran Phra Khann, fondasi kerajaan bayangan **ORCA** res
 
 *KLIK.*
 
-Ryu Jin menurunkan ponsel satelit terenkripsinya ke dalam saku mantel, memutuskan sambungan panggilan Telegram dengan Ketua Detektif Nasional Lee Tae-gyu di Seoul. Asap tipis masih mengepul dari moncong pistol kustom *Revolver Magnum* di tangan kanannya.
+Ryu Jin menurunkan ponsel satelit terenkripsinya ke dalam saku mantel, memutuskan sambungan panggilan Telegram dengan Kepala Satuan Tugas Nasional Antisindikat Lee Tae-gyu di Seoul. Asap tipis masih mengepul dari moncong pistol kustom *Revolver Magnum* di tangan kanannya.
 
 Di sekeliling halaman utama markas lima lantai bermaterialkan monolit baja titanium hitam itu, pertempuran telah usai sepenuhnya.
 
@@ -4315,13 +4517,13 @@ Sistem zona anti-penyergapan yang dirancang Ryu Jin terbukti sempurna: para peti
 
 Kang Dojin menurunkan sepasang senapan submesin TMP di kedua tangannya, terkekeh puas sambil meniup asap moncong senjatanya. Di sisi pilar lain, Han Shin-woo menarik kembali shuriken dan kunai bajanya dari titik saraf vital mayat-mayat Yakuza dengan sapuan kain yang tenang.
 
-Choi Min-ho melangkah keluar dari balik bayangan pilar. Peluru-peluru senapan serbu musuh yang sempat menghantam dadanya berserakan di atas lantai tanpa meninggalkan goresan sedikit pun di rompi zirah komposit *Depleted Uranium-Grafena* miliknya. Min-ho memasukkan pistol laser partikel mikro ciptaannya—*GUNCO*—kembali ke dalam sarung sabuk pinggangnya.
+Choi Min-ho melangkah keluar dari balik pilar dengan napas tertahan. Beberapa proyektil pecah setelah menghantam pelat keramik-komposit di balik rompinya, tetapi daya benturnya meninggalkan memar dalam dan retakan pada satu sisi pelat. Min-ho memasukkan perangkat pelontar pulsa ciptaannya kembali ke sarung pinggang; perlindungan itu tidak akan menahan tembakan lain pada titik yang sama.
 
 Di balkon lantai lima, Asura menyandarkan senapan runduknya, menatap tenang ke arah lapangan yang telah bersih.
 
 "Semua target dinetralkan," lapor Kapten Lee Han-joon yang kini menjabat sebagai Direktur Operasi Taktis ORCA.
 
-Pintu geser otomatis di lantai dasar terbuka. Puluhan pemuda mantan warga Desa Phra Khann yang kini berseragam taktis hitam melangkah keluar dengan disiplin militer yang ketat. 
+Pintu geser otomatis di lantai dasar terbuka. Puluhan pemuda mantan warga Desa Phra Khann yang kini berseragam taktis hitam melangkah keluar dengan disiplin militer yang ketat.
 
 Di bawah pelatihan langsung para mantan prajurit Grey Hawk selama satu tahun terakhir, para pemuda desa telah bertransformasi menjadi unit pengamanan dan teknisi pertahanan kelas satu. Sementara itu, warga desa yang tidak bertempur bekerja secara terhormat mengelola manufaktur komponen dan sistem keamanan di bawah bendera legal: **ORCA (Orion Catalyst Group) Cyber Security & Global Execution Syndicate**.
 
@@ -4337,7 +4539,7 @@ Pencahayaan biru neon siber memancar redup di sekeliling meja bundar holografik.
 
 Ryu Jin duduk di kursi utama. Di sekelilingnya, Kuartet Predator (Dojin, Shin-woo, Min-ho), Kapten Lee Han-joon, dan Asura telah mengambil posisi masing-masing.
 
-Min-ho menghubungkan peranti taktis sakunya ke konsol pusat. Layar hologram di tengah meja memproyeksikan peta perbatasan Asia Tenggara dan semenanjung Korea, disertai barisan diagram alir dana dan data komunikasi terenkripsi yang baru saja dikirimkan langsung oleh Ketua Detektif Lee Tae-gyu.
+Min-ho menghubungkan peranti taktis sakunya ke konsol pusat. Layar hologram di tengah meja memproyeksikan peta perbatasan Asia Tenggara dan semenanjung Korea, disertai barisan diagram alir dana dan data komunikasi terenkripsi yang baru saja dikirimkan langsung oleh Kepala Satuan Tugas Lee Tae-gyu.
 
 "Data dari Detektif Tae-gyu sudah masuk secara lengkap," buka Min-ho, suaranya terdengar serius dan tajam. "Identitas, nama-nama pejabat, rekening offshore, hingga posisi safehouse mereka di Seoul sudah berada di tangan kita. Penyerangan tiga puluh orang tadi membuktikan satu hal: **pusat komando dan jaringan komunikasi terkuat musuh bukanlah di lembah ini, melainkan di Seoul di bawah kendali sindikat Cerberus**."
 
@@ -4367,7 +4569,17 @@ Shin-woo menatap kedua tangannya yang terbalut kain, memikirkan konspirasi para 
 
 "Sudah waktunya," bisik Min-ho dengan suara dingin menggetarkan. "Para pejabat korup dan Cerberus di Seoul harus membayar kematian ayahku."
 
-Shin-woo mengencangkan simpul kain di pergelangan tangannya. "A---
+Shin-woo mengencangkan simpul kain di pergelangan tangannya. "Aku ikut. Lima tahun lalu mereka merampas keluarga kita. Sekarang kita cabut perlindungan mereka satu demi satu."
+
+Ryu Jin berdiri. Peta Seoul dan Black Valley bertumpuk pada layar holografik di belakangnya—dua medan perang yang terpisah ribuan kilometer, tetapi dihubungkan oleh aliran uang dan senjata yang sama.
+
+"Kita berangkat sebelum fajar," putus Ryu Jin. "Operasi Korea dimulai dari Kota Seora."
+
+Dojin menatap ketiga rekannya tanpa senyum. Untuk pertama kalinya sejak ORCA berdiri, Kuartet Predator akan terpisah di tengah ancaman besar.
+
+Jika kalkulasi Ryu Jin meleset, mereka tidak hanya kehilangan Seoul. Benteng dan seluruh warga Black Valley akan ikut terkubur.
+
+---
 
 ## BAB 50: AKAR DI KOTA SEORA
 
@@ -4479,7 +4691,7 @@ Sepuluh menit kemudian, mobil memasuki pelataran belakang ruko yang tertutup ben
 
 Jae-hyeok menekan tombol rahasia di dinding garasi. Pintu panel baja tergeser senyap, membuka akses menuju tangga melingkar ke ruang bawah tanah—markas komando utama **ORCA Divisi Seora**.
 
-Ruangan bawah tanah itu sangat luas, berpendingin udara dingin dengan penerangan neon biru siber. 
+Ruangan bawah tanah itu sangat luas, berpendingin udara dingin dengan penerangan neon biru siber.
 
 Puluhan layar monitor memproyeksikan peta digital Kota Seora, aliran dana perbankan, dan pengawasan kamera lalu lintas real-time. Di sudut lain, sepuluh operator siber berjaket ORCA sedang mengetuk papan ketik dengan cepat, sementara di aula taktis, puluhan kombatan muda bertubuh tegap sedang merawat peralatan persenjataan taktis.
 
@@ -4493,7 +4705,7 @@ Ia melangkah menuju meja komando pusat di tengah ruangan. Min-ho menghubungkan p
 
 *BZZT.*
 
-Sambungan suara satelit terenkripsi terhubung. Suara berat Ketua Detektif Lee Tae-gyu terdengar dari speaker meja komando.
+Sambungan suara satelit terenkripsi terhubung. Suara berat Kepala Satuan Tugas Lee Tae-gyu terdengar dari speaker meja komando.
 
 *["Jin. Kau sudah meninjau markas Divisi Seora?"]*
 
@@ -4503,13 +4715,13 @@ Sambungan suara satelit terenkripsi terhubung. Suara berat Ketua Detektif Lee Ta
 
 Layar hologram di tengah meja memproyeksikan foto seorang perwira tinggi bermata licik berseragam Angkatan Darat, disertai berkas kejahatannya.
 
-*["Kolonel Yoon adalah tangan kanan Jenderal Besar Angkatan Darat yang memfasilitasi serangan tiga puluh tentara ke Black Valley kemarin,"]* jelas Tae-gyu. *["Malam besok pukul sepuluh malam, Kolonel Yoon akan mengadakan transaksi suap sebesar empat puluh miliar won bersama empat eksekutif Cerberus di Penthouse Lantai 40 Zenith Tower."]*
+*["Kolonel Yoon adalah tangan kanan Jenderal Besar Angkatan Darat yang memfasilitasi serangan tiga puluh tentara ke Black Valley kemarin,"]* jelas Tae-gyu. *["Besok malam pukul sepuluh, Kolonel Yoon akan mengadakan transaksi suap sebesar empat puluh miliar won bersama empat eksekutif Cerberus di Penthouse Lantai 40 Zenith Tower."]*
 
 Min-ho mengamati diagram struktur gedung Zenith Tower. "Lantai empat puluh disewa privat. Dijaga sepuluh algojo pengawal kelas berat."
 
 Ryu Jin menatap layar hologram dengan sepasang mata biru es yang dingin dan tenang. Kalkulasi taktis di otaknya telah menyusun skenario pembedahan yang sempurna.
 
-"Malam besok... kita putus lidah pertama mereka," ucap Ryu Jin.
+"Besok malam... kita putus lidah pertama mereka," ucap Ryu Jin.
 
 Pondasi telah tertancap kokoh. Perang pembalasan di Kota Seora resmi siap dimulai.
 
@@ -4522,17 +4734,17 @@ Pondasi telah tertancap kokoh. Perang pembalasan di Kota Seora resmi siap dimula
 
 Hujan gerimis menyapu dinding kaca tebal anti-peluru di lantai atas kompleks markas komando. Suara gesekan angin malam merayap senyap di balik peredam akustik ruangan yang kedap suara total.
 
-Di dalam kamar komando pribadi Ryu Jin yang luas dan futuristik—berpencahayaan redup neon biru siber dengan dinding berpanel serat karbon hitam—Ryu Jin duduk tenang di atas kursi komando berkulit hitam. 
+Di dalam kamar komando pribadi Ryu Jin yang luas dan futuristik—berpencahayaan redup neon biru siber dengan dinding berpanel serat karbon hitam—Ryu Jin duduk tenang di atas kursi komando berkulit hitam.
 
-Di atas meja kerja bermaterialkan marmer hitam dan konsol monitor terenkripsi di hadapannya, tangan kanan Ryu Jin memegang sebilah batu pengasah kusam, perlahan menggosokkannya pada bilah pisau taktis bermata ganda miliknya. *Sret... sret...* Gesekan halus logam dan batu bergema konstan, mengisi kesunyian ruangan sebelum penyerbuan ke Zenith Tower yang dijadwalkan dua jam lagi.
+Di atas meja kerja bermaterialkan marmer hitam dan konsol monitor terenkripsi di hadapannya, tangan kanan Ryu Jin memegang sebilah batu pengasah kusam, perlahan menggosokkannya pada bilah pisau taktis bermata ganda miliknya. *Sret... sret...* Gesekan halus logam dan batu bergema konstan, mengisi kesunyian ruangan sebelum penyerbuan ke Zenith Tower yang dijadwalkan pada malam berikutnya.
 
-Ryu Jin menghentikan usapan pisaunya. 
+Ryu Jin menghentikan usapan pisaunya.
 
 Tangan kirinya merasuk ke dalam saku dalam mantel hitamnya, menarik keluar sebuah benda tua yang selalu ia simpan rapat-rapat dari pandangan orang lain: sebuah **koin tembaga tua berukir seekor naga yang melilit dua pedang bersilang**.
 
 Permukaan koin itu telah halus dan sedikit memudar, tergerus oleh gesekan jemarinya selama bertahun-tahun.
 
-Ryu Jin menggenggam koin itu di telapak tangannya. Mengusap ukiran naga tersebut, sepasang mata biru esnya menatap kosong ke arah layar monitor terenkripsi yang meredup—dan dalam sekejap, pikiran sang Arsitek Taktis ditarik mundur melintasi ribuan mil samudra, kembali ke masa kecilnya yang tenggelam di daratan Jepang sepuluh tahun lalu.
+Ryu Jin menggenggam koin itu di telapak tangannya. Mengusap ukiran naga tersebut, sepasang mata biru esnya menatap kosong ke arah layar monitor terenkripsi yang meredup—dan dalam sekejap, pikiran sang Arsitek Taktis ditarik mundur melintasi ribuan mil samudra, kembali ke masa kecilnya yang tenggelam di daratan Jepang lima tahun lalu.
 
 ***
 
@@ -4565,7 +4777,7 @@ Bos Takamori melangkah mendekati Ryu Jin kecil. Pria paruh baya bertubuh tegap d
 
 "Bagus, Jin," suara Bos Takamori berat dan berwibawa. "Tapi panah biasa hanya mengandalkan angin dan keberuntungan. Seorang prajurit Heian tidak mengandalkan keberuntungan. Kau harus menghitung setiap milimeter jarak, massa udara, dan titik tumpu daya dorong di dalam kepalamu sebelum jarimu melepas tali."
 
-Sejak usia enam tahun, Ryu Jin digempa secara brutal. 
+Sejak usia enam tahun, Ryu Jin digempa secara brutal.
 
 Pagi hari ia mempelajari kalkulasi fisika, mekanika kinetik, dan anatomi tubuh dari tutor privat terbaik yang disewa ayahnya. Siang hingga malam hari, ia digembleng oleh Bos Takamori dalam seni memanah, tebasan pisau, dan penotokan saraf.
 
@@ -4573,7 +4785,7 @@ Ryu Jin tidak sekadar meniru seni samurai kuno itu secara mentah-mentah. Dengan 
 
 Ia mengganti busur kayu yang panjang dengan jentikan baut baja tebal dan pisau lempar berkecepatan kinetik supersonik. Ia mengubah teknik pedang Iaijutsu menjadi sabetan pisau taktis jarak dekat yang memotong arteri dalam hitungan milidetik. Dan ia menyempurnakan seni *Seiketsu* menjadi tusukan jari presisi yang mampu menghancurkan saluran pernapasan musuh tanpa suara.
 
-Pada usia sepuluh tahun, Ryu Jin telah bertransformasi menjadi sesosok jenius taktis yang mampu mengukur jarak kematian musuh dalam hitungan milidetik.
+Pada usia empat belas tahun, Ryu Jin telah bertransformasi menjadi sesosok jenius taktis yang mampu mengukur jarak kematian musuh dalam hitungan milidetik.
 
 ***
 
@@ -4585,9 +4797,9 @@ Menyadari bahwa mereka tidak akan pernah bisa menumbangkan keluarga Ryu hanya de
 
 Sebuah **Aliansi Gelap Internasional** resmi dibentuk di balik layar.
 
-Bukan hanya satu, melainkan **Tiga Sindikat Yakuza Raksasa Rival** di Jepang menyatukan kekuatan: 
-- **Kanto-kai (関東会)**, sindikat penguasa Tokyo yang memegang kendali atas jaringan perjudian siber dan alutsista gelap; 
-- **Kudo-gumi (工藤組)**, faksi militer hitam paling radikal dari wilayah Kyushu yang terkenal menguasai bahan peledak C4 dan pembunuh bayaran tanpa ampun; serta 
+Bukan hanya satu, melainkan **Tiga Sindikat Yakuza Raksasa Rival** di Jepang menyatukan kekuatan:
+- **Kanto-kai (関東会)**, sindikat penguasa Tokyo yang memegang kendali atas jaringan perjudian siber dan alutsista gelap;
+- **Kudo-gumi (工藤組)**, faksi militer hitam paling radikal dari wilayah Kyushu yang terkenal menguasai bahan peledak C4 dan pembunuh bayaran tanpa ampun; serta
 - **Kyoryu-kai (巨龍会)**, gembong Yakuza pesisir Osaka yang memonopoli pelabuhan kargo dan dermaga transportasi hitam.
 
 Ketiga raksasa Yakuza ini bergandengan tangan dengan jaringan Kartel Narkoba Internasional, menyuap puluhan menteri dan pejabat korup di kementerian energi Jepang, serta menjalin kerja sama rahasia dengan sindikat bawah tanah asal Korea Selatan: **Sindikat Cerberus**.
@@ -4622,7 +4834,7 @@ Kilat menyambar langit malam, memantulkan bayangan ratusan siluet berpakaian hit
 
 Ledakan peledak plastik C4 menghancurkan gerbang jati utama hingga berkeping-keping. Udara malam yang dingin seketika dibakar oleh lahar api dan kepulan asap pekat. Rentetan berondongan senapan serbu otomatis meledak serempak, memuntahkan ribuan proyektil baja yang menembus dinding-dinding kertas dan pilar kayu kediaman kuno tersebut.
 
-Di dalam ruang kerja utamanya yang dipenuhi kobaran api, sang konglomerat energi, Ryu Kenzo, tetap duduk tegap di balik meja kayunya. 
+Di dalam ruang kerja utamanya yang dipenuhi kobaran api, sang konglomerat energi, Ryu Kenzo, tetap duduk tegap di balik meja kayunya.
 
 Di hadapannya, **Sang Pemimpin Tertinggi Aliansi Gelap**—sosok paling berkuasa dan paling berbahaya yang berada di puncak hierarki underworld internasional—melangkah masuk bersama perwira Kudo-gumi. Pria bertopeng ukiran naga hitam berzirah taktis itu melemparkan koper berisi dokumen pengalihan aset infrastruktur energi ke atas meja yang ternoda abu.
 
@@ -4646,7 +4858,7 @@ Pintu geser ruang kerja hancur terlempar. Bos Takamori menerjang masuk bagai nag
 
 Dua tebasan secepat kilat memotong perwira Kudo-gumi dan menebas dada sang pengawal elit. Sang Pemimpin Utama menangkis ayunan pedang Bos Takamori dengan gauntlet titanium di tangannya, memicu percikan bunga api besar sebelum melepaskan tembakan jarak dekat yang merobek pundak Bos Takamori.
 
-Bos Takamori yang bersimbah darah mencengkeram tangan Ryu Jin muda yang berusia sepuluh tahun.
+Bos Takamori yang bersimbah darah mencengkeram tangan Ryu Jin muda yang berusia empat belas tahun.
 
 "Lari, Jin!" raung Bos Takamori.
 
@@ -4694,7 +4906,7 @@ Jemari Bos Takamori yang berdarah mencengkeram kerah baju Ryu Jin kecil dengan s
 
 Tangan Bos Takamori perlahan terkulai lemas ke atas beton basah. Matanya terpejam damai di tengah deru hujan badai Osaka.
 
-Ryu Jin kecil berdiri di tepi dermaga. 
+Ryu Jin kecil berdiri di tepi dermaga.
 
 Ia menggenggam koin tembaga tua itu erat-erat hingga ukiran naganya menancap ke telapak tangannya. Sepasang mata biru esnya menatap jasad Bos Takamori untuk terakhir kalinya, lalu berbalik melangkah menaiki kapal kargo yang perlahan bergerak menembus samudra menuju Korea Selatan.
 
@@ -4714,7 +4926,7 @@ Pendar neon biru siber menyinari wajahnya yang tenang. Ingatan lima tahun lalu d
 
 Hujan di luar masih terdengar sayup-sayup menembus peredam akustik ruangan.
 
-Dini hari yang sunyi. Pukul dua lewat empat puluh lima adalah waktu bagi raga untuk beristirahat dan memulihkan stamina sepenuhnya sebelum operasi besar dimulai. 
+Dini hari yang sunyi. Pukul dua lewat empat puluh lima adalah waktu bagi raga untuk beristirahat dan memulihkan stamina sepenuhnya sebelum operasi besar dimulai.
 
 Ryu Jin menyandarkan punggungnya di atas peraduan, memejamkan mata biru esnya dengan ritme napas yang konstan dan teratur. Di kamar sebelah, Han Shin-woo dan Choi Min-ho juga sedang mengumpulkan energi mereka. Tidak ada kepanikan, tidak ada ketergesaan yang ceroboh. Seorang predator sejati tahu kapan harus mengistirahatkan tubuhnya dan kapan harus menerkam mangsanya tanpa ampun.
 
@@ -4729,19 +4941,19 @@ Ryu Jin tertidur dalam ketenangan yang mematikan.
 **Pukul 21.45 WIB.**
 **Distrik Pusat, Kota Seora.**
 
-SUV hitam melaju perlahan melewati deretan pencakar langit Zenith Tower setinggi empat puluh lantai. Hujan gerimis memantulkan pendar neon reklame di atas aspal basah. 
+SUV hitam melaju perlahan melewati deretan pencakar langit Zenith Tower setinggi empat puluh lantai. Hujan gerimis memantulkan pendar neon reklame di atas aspal basah.
 
-Di dalam mobil, suasana sunyi mencekam. 
+Di dalam mobil, suasana sunyi mencekam.
 
 Han Shin-woo mengencangkan kain perban hitam di kedua pergelangan tangannya. Di sebelahnya, Choi Min-ho memoles casing titanium peranti taktis sakunya. Ryu Jin duduk tenang di kursi belakang, merapatkan mantel aramid hitamnya. Sepasang mata biru esnya menatap lurus ke arah puncak Zenith Tower yang menjulang membelah kabut malam.
 
 "Waktu tersisa sepuluh menit," lapor Lee Jae-hyeok dari kursi kemudi. "Park Jin-woo dan dua puluh kombatan Divisi Seora telah mengunci seluruh pintu keluar darurat dan pelataran parkir bawah tanah. Tidak ada satu pun pengawal yang bisa kabur."
 
-Min-ho mengetuk layarnya tiga kali. 
+Min-ho mengetuk layarnya tiga kali.
 
 *BZZT.*
 
-"Sistem kamera pengintai internal lantai empat puluh sudah ditolak," ucap Min-ho dingin. "Pukul sepuluh malam pas, seluruh aliran listrik Penthouse akan mati total selama seratus dua puluh detik."
+"Sistem kamera pengintai internal lantai empat puluh sudah dinonaktifkan," ucap Min-ho dingin. "Pukul sepuluh malam pas, seluruh aliran listrik Penthouse akan mati total selama seratus dua puluh detik."
 
 Ryu Jin tidak bersuara. Tangan kirinya meraba koin tembaga tua berukir naga di dalam sakunya—sebuah pengingat akan janji darah yang kini menuntun langkahnya.
 
@@ -4758,7 +4970,7 @@ Di atas lantai marmer impor yang mengilap, Kolonel Yoon Sang-chul melempar gelas
 
 "Dua minggu lagi," kata Kolonel Yoon sambil terkekeh bangga kepada empat eksekutif Cerberus bersetelan jas mahal. "Dua helikopter tempur Angkatan Darat akan meratakan benteng busuk ORCA di Black Valley sampai tak tersisa!"
 
-Keempat eksekutif Cerberus ikut tertawa menyeringai. 
+Keempat eksekutif Cerberus ikut tertawa menyeringai.
 
 Di sekeliling ruangan luas itu, sepuluh algojo pengawal kelas berat—para veteran tentara bayaran berpakaian taktis tanpa emblem—berdiri tegap memegang senapan serbu P90 dan belati sungkur di pinggang.
 
@@ -4796,7 +5008,7 @@ Min-ho tidak mundur. Ia mengangkat gauntlet titanium-grafena di lengan kirinya.
 
 *TRANG! TRANG!*
 
-Percikan bunga api menyala di tengah kegelapan saat bilah baja menghantam zirah gauntlet. Min-ho menekan pemicu di telapak tangannya. 
+Percikan bunga api menyala di tengah kegelapan saat bilah baja menghantam zirah gauntlet. Min-ho menekan pemicu di telapak tangannya.
 
 *PSSSHHH!*
 
@@ -4828,7 +5040,7 @@ Namun sebelum jemarinya berhasil menyentuh gagang senjata, sebuah ujung sepatu b
 
 "AAAGHHH!" Kolonel Yoon menjerit histeris saat tulang pergelangan tangannya hancur tergencet di atas marmer.
 
-Ryu Jin berdiri di atasnya. 
+Ryu Jin berdiri di atasnya.
 
 Baju mantel Ryu Jin ternoda cipratan darah segar di bagian dada. Napasnya pendek, konstan, dan stabil. Sepasang mata biru esnya menatap Kolonel Yoon yang terengah-engah dalam keputusasaan, memuntahkan air liur bercampur darah dari bibirnya yang pecah.
 
@@ -4838,11 +5050,11 @@ Shin-woo melangkah mendekat, meraih telepon satelit itu dan menyerahkannya kepad
 
 Ryu Jin menatap nama di layar telepon. Detail kecil yang menjadi kunci utama perburuan mereka selanjutnya di Korea.
 
-Ryu Jin berjongkok. Bau besi tua dan darah membakar hidung Kolonel Yoon dan Kwon Hyeok-tae saat wajah Ryu Jin berada hanya sepuluh senti dari muka mereka.
+Ryu Jin berjongkok. Bau besi tua dan darah membakar hidung Kolonel Yoon saat wajah Ryu Jin berada hanya sepuluh sentimeter dari muka perwira korup itu.
 
-"Bicaralah," suara Ryu Jin mengalir pelan dan tanpa ampun. "Atau si Jenius Sadis di sebelahku akan meneteskan asam ini ke tenggorokanmu."
+"Bicaralah," suara Ryu Jin mengalir pelan dan tanpa ampun. "Di mana Kwon Hyeok-tae bersembunyi, dan bagaimana kami mencapai Jenderal Kang? Jika kau berbohong, Min-ho akan mengetahuinya sebelum kalimatmu selesai."
 
-Kolonel Yoon dan Kwon Hyeok-tae menelan ludah dengan tenggorokan yang serak dan berdarah. Mata mereka dipenuhi ketakutan mutlak pada sang Arsitek Taktis.
+Kolonel Yoon menelan ludah dengan tenggorokan yang serak dan berdarah. Matanya dipenuhi ketakutan mutlak kepada sang Arsitek Taktis. Di layar telepon satelit yang retak, nama Jenderal Kang masih menyala seperti pintu menuju lapisan konspirasi berikutnya.
 
 Perang di Kota Seora resmi meletus dalam darah.
 
@@ -4853,231 +5065,33 @@ Perang di Kota Seora resmi meletus dalam darah.
 **Pukul 22.15 WIB.**
 **Zenith Tower, Penthouse Lantai 40, Distrik Pusat.**
 
-Hujan deras di luar kaca jendela penthouse memantulkan pendar merah dan biru lampu kota di kejauhan. 
+Hujan deras di luar kaca jendela penthouse memantulkan pendar merah dan biru lampu kota di kejauhan.
 
 Di dalam ruangan seluas lima ratus meter persegi yang tadinya memancarkan kemewahan kelas atas itu, kini hanya ada keheningan mencekam. Bau tembakau mahal dan wiski berumur puluhan tahun telah sepenuhnya terkikis oleh bau anyir darah segar yang pekat, asap asam mendesis, dan bau seng dari isi perut sepuluh pengawal elit yang tergeletak tak bernyawa.
 
-Dua sosok paling berkuasa di bawah tanah Kota Seora kini tersungkur bersimbah darah di atas marmer hitam yang dingin: **Kolonel Yoon Sang-chul** dan **Kwon Hyeok-tae**—Pemimpin Tertinggi Cerberus Korea yang dijuluki *Sang Anjing Neraka*.
+Salah satu penghubung paling berkuasa antara militer korup dan dunia bawah tanah Kota Seora kini tersungkur bersimbah darah di atas marmer hitam yang dingin: **Kolonel Yoon Sang-chul**.
 
-Pergelangan tangan kanan Kolonel Yoon hancur tergencet di bawah sepatu bot taktis Ryu Jin. Sementara di sebelahnya, Kwon Hyeok-tae mengerang kaku di bawah injakan dada Han Shin-woo, dengan belati sungkurnya sendiri menancap melintasi telapak tangannya hingga mengunci ke marmer.
+Pergelangan tangan kanan Kolonel Yoon hancur tergencet di bawah sepatu bot taktis Ryu Jin. Han Shin-woo berjaga di sisi ruangan, memastikan tidak ada pengawal yang masih mampu bergerak.
 
-Napas kedua pria korup itu tersengal-sengal parah. Mata mereka melotot ketakutan menatap kaku ke arah Choi Min-ho—si Jenius Sadis—yang berjongkok di hadapan mereka sambil memegang botol kaca berisi gas asam konsentrat yang mengepulkan asap beracun.
+Napas sang kolonel tersengal-sengal parah. Matanya melotot ketakutan menatap kaku ke arah Choi Min-ho—si Jenius Sadis—yang berjongkok di hadapannya sambil memegang botol kaca berisi gas asam konsentrat yang mengepulkan asap beracun.
 
-"J-jangan... aku mohon, jangan!" ratap Kolonel Yoon dengan suara melengking serak, air mata keputusasaan bercampur keringat dan darah mengalir membahasi pipinya. "Aku akan ceritakan semuanya! Apapun yang kalian inginkan... akan kami berikan!"
+"J-jangan... aku mohon, jangan!" ratap Kolonel Yoon dengan suara melengking serak, air mata keputusasaan bercampur keringat dan darah mengalir membasahi pipinya. "Aku akan menceritakan semuanya! Apa pun yang kalian inginkan... akan kuberikan!"
 
 Ryu Jin menatap mereka dari atas dengan sepasang mata biru es yang dingin tanpa empati sedikit pun. Napas Ryu Jin konstan dan teratur, seolah baru saja menyelesaikan pembedahan medis yang tidak memerlukan emosi.
 
-"Pemimpin Cerberus dan perwira Angkatan Darat ada di satu tempat," suara Ryu Jin mengalir pelan dan tanpa ampun. "Kombinasi yang sempurna untuk mengakhiri pembusukan di kota ini."
+"Kwon Hyeok-tae meninggalkanmu sebagai pengalih perhatian," suara Ryu Jin mengalir pelan dan tanpa ampun. "Berikan lokasinya. Setelah itu, buka jalan menuju Jenderal Kang."
 
-Kwon Hyeok-tae merintih menahan sakit yang membakar di tangannya, menatap Ryu Jin dengan sepasang mata merah penuh amarah dan keputusasaan. "K-kau... siapa kalian sebenarnya?! Cerberus didukung oleh aliansi tiga Yakuza Jepang dan kartel luar negeri! Jika kalian membunuhku malam ini, kalian tidak akan pernah selamat dari perburuan mereka!"
+Kolonel Yoon merintih menahan sakit yang membakar di tangannya, lalu menatap Ryu Jin dengan mata merah penuh amarah dan keputusasaan. "K-kau... siapa kalian sebenarnya?! Cerberus didukung oleh aliansi tiga Yakuza Jepang dan kartel luar negeri! Jika kalian membunuhku malam ini, kalian tidak akan pernah selamat dari perburuan mereka!"
 
-Han Shin-woo menekan tumit kakinya lebih keras ke dada Kwon Hyeok-tae. 
-
-*KRAK!*
-
-Tulang dada sang Pemimpin Cerberus retak berderak. Kwon Hyeok-tae memuntahkan gumpalan darah kental ke udara.
+Han Shin-woo menginjak pistol yang tergeletak di dekat tangan sang kolonel, lalu menendangnya jauh ke bawah sofa.
 
 "Tiga Yakuza Jepang?" sela Shin-woo dengan seringai dingin. "Siapa pun pelindung kalian di Jepang, selagi kalian berdiri di sisi yang salah, kami yang akan berburu dan menghancurkan kalian semua."
 
-Mendengar ancaman dingin tanpa ragu tersebut, sepasang mata Kwon Hyeok-tae melotot lebar. Ketakutan yang jauh lebih pekat menyapu wajah sang Pemimpin Cerberus saat ia menyadari kekejaman tanpa ampun dari para pemburu di hadapannya.
+Mendengar ancaman dingin tanpa ragu tersebut, mata Kolonel Yoon melotot lebar. Ketakutan yang jauh lebih pekat menyapu wajahnya saat ia menyadari bahwa para pemburu di hadapannya tidak dapat ditawar.
 
 *BZZT.*
 
-Papan peranti taktis di lengan kiri Min-ho mendesis, memancarkan nada getar frekuensi satelit terenkripsi. 
-"Jadilah lebih kuat dari kami semua... Ambil kembali apa yang mereka curi dari keluargamu... dan tegakkan keadilanmu sendiri di atas tanah mereka!"
-
-Tangan Bos Takamori perlahan terkulai lemas ke atas beton basah. Matanya terpejam damai di tengah deru hujan badai Osaka.
-
-Ryu Jin kecil berdiri di tepi dermaga. 
-
-Ia menggenggam koin tembaga tua itu erat-erat hingga ukiran naganya menancap ke telapak tangannya. Sepasang mata biru esnya menatap jasad Bos Takamori untuk terakhir kalinya, lalu berbalik melangkah menaiki kapal kargo yang perlahan bergerak menembus samudra menuju Korea Selatan.
-
-Di malam itu, Ryu Kenzo sang pemilik **Ryu Energy Group** telah gugur, dan kepolosan Ryu Jin sebagai anak konglomerat telah musnah bersama ayahnya. Yang tersisa di atas kapal kargo itu hanyalah sesosok **Arsitek Taktis** berdarah dingin yang membawa sumpah dendam tak tertumpahkan.
-
-***
-
-**Masa Sekarang.**
-**Pukul 02.45 Dini Hari.**
-**Kamar Komando Pribadi Ryu Jin, Markas ORCA Divisi Seora.**
-
-*SNAP.*
-
-Ryu Jin membuka matanya di dalam kamar komando yang futuristik.
-
-Pendar neon biru siber menyinari wajahnya yang tenang. Ingatan lima tahun lalu di pelabuhan Osaka perlahan memudar dari pelupuk matanya. Ryu Jin meremas koin tembaga tua di tangannya sejenak, lalu memasukkannya kembali ke saku dalam mantel hitam aramidnya.
-
-Hujan di luar masih terdengar sayup-sayup menembus peredam akustik ruangan.
-
-Dini hari yang sunyi. Pukul dua lewat empat puluh lima adalah waktu bagi raga untuk beristirahat dan memulihkan stamina sepenuhnya sebelum operasi besar dimulai. 
-
-Ryu Jin menyandarkan punggungnya di atas peraduan, memejamkan mata biru esnya dengan ritme napas yang konstan dan teratur. Di kamar sebelah, Han Shin-woo dan Choi Min-ho juga sedang mengumpulkan energi mereka. Tidak ada kepanikan, tidak ada ketergesaan yang ceroboh. Seorang predator sejati tahu kapan harus mengistirahatkan tubuhnya dan kapan harus menerkam mangsanya tanpa ampun.
-
-Besok malam, saat transaksi haram empat puluh miliar won Kolonel Yoon Sang-chul digelar di Zenith Tower... perburuan darah di Kota Seora akan resmi meletus.
-
-Ryu Jin tertidur dalam ketenangan yang mematikan.
-
----
-
-## BAB 53: EKSEKUSI PENTHOUSE ZENITH TOWER
-
-**Pukul 21.45 WIB.**
-**Distrik Pusat, Kota Seora.**
-
-SUV hitam melaju perlahan melewati deretan pencakar langit Zenith Tower setinggi empat puluh lantai. Hujan gerimis memantulkan pendar neon reklame di atas aspal basah. 
-
-Di dalam mobil, suasana sunyi mencekam. 
-
-Han Shin-woo mengencangkan kain perban hitam di kedua pergelangan tangannya. Di sebelahnya, Choi Min-ho memoles casing titanium peranti taktis sakunya. Ryu Jin duduk tenang di kursi belakang, merapatkan mantel aramid hitamnya. Sepasang mata biru esnya menatap lurus ke arah puncak Zenith Tower yang menjulang membelah kabut malam.
-
-"Waktu tersisa sepuluh menit," lapor Lee Jae-hyeok dari kursi kemudi. "Park Jin-woo dan dua puluh kombatan Divisi Seora telah mengunci seluruh pintu keluar darurat dan pelataran parkir bawah tanah. Tidak ada satu pun pengawal yang bisa kabur."
-
-Min-ho mengetuk layarnya tiga kali. 
-
-*BZZT.*
-
-"Sistem kamera pengintai internal lantai empat puluh sudah ditolak," ucap Min-ho dingin. "Pukul sepuluh malam pas, seluruh aliran listrik Penthouse akan mati total selama seratus dua puluh detik."
-
-Ryu Jin tidak bersuara. Tangan kirinya meraba koin tembaga tua berukir naga di dalam sakunya—sebuah pengingat akan janji darah yang kini menuntun langkahnya.
-
-"Kita turun," perintah Ryu Jin.
-
-***
-
-**Pukul 22.00 WIB.**
-**Zenith Tower, Penthouse Lantai 40.**
-
-Bau tembakau mahal, wiski berumur puluhan tahun, dan parfum manis menyengat udara ruangan seluas lima ratus meter persegi itu.
-
-Di atas lantai marmer impor yang mengilap, Kolonel Yoon Sang-chul melempar gelas kristalnya ke meja kaca. Di sebelahnya, dua koper logam tebal terbuka lebar—memamerkan tumpukan uang tunai lima puluh ribuan won bernilai empat puluh miliar won yang tertata rapi.
-
-"Dua minggu lagi," kata Kolonel Yoon sambil terkekeh bangga kepada empat eksekutif Cerberus bersetelan jas mahal. "Dua helikopter tempur Angkatan Darat akan meratakan benteng busuk ORCA di Black Valley sampai tak tersisa!"
-
-Keempat eksekutif Cerberus ikut tertawa menyeringai. 
-
-Di sekeliling ruangan luas itu, sepuluh algojo pengawal kelas berat—para veteran tentara bayaran berpakaian taktis tanpa emblem—berdiri tegap memegang senapan serbu P90 dan belati sungkur di pinggang.
-
-Tiba-tiba—
-
-*CRAKKK!*
-
-Lampu gantung kristal mati total. Seluruh pencahayaan penthouse padam seketika. Kegelapan pekat menyergap tanpa kompromi.
-
-"Apa-apaan—"
-
-*DURR!*
-
-Belum sempat komandan pengawal menyelesaikan umpatannya, sebuah dentuman keras mendarat di rahangnya. Pria bertubuh seratus kilogram itu terlempar menabrak meja kaca hingga hancur berkeping-keping.
-
-Darah. Bau seng yang menyengat langsung memenuhi udara sempit penthouse.
-
-"MUSUH! GUNAKAN NIGHT VISION—"
-
-*TAK!*
-
-Shin-woo muncul dari bayangan seperti iblis tanpa napas. Tangan kirinya mencengkeram pergelangan tangan pengawal pertama yang mencoba menarik pistol. Shin-woo memutar badannya, memelintir sendi siku pria itu ke arah berlawanan.
-
-*KRAKKK!*
-
-Sendi siku itu patah menembus kulit. Pengawal itu melengking histeris, tapi Shin-woo tidak memberi jeda. Jari-jari tangannya merapat, menghantam tenggorokan pengawal itu dengan tusukan dua jari yang presisi.
-
-*BHHUT!*
-
-Saluran pernapasan pria itu hancur. Ia rubuh, memegangi lehernya yang menyempit sambil terbatuk memuntahkan gumpalan darah kental.
-
-Di sisi lain ruangan, dua algojo Cerberus mengayunkan belati sungkur secara bersamaan ke arah Min-ho.
-
-Min-ho tidak mundur. Ia mengangkat gauntlet titanium-grafena di lengan kirinya.
-
-*TRANG! TRANG!*
-
-Percikan bunga api menyala di tengah kegelapan saat bilah baja menghantam zirah gauntlet. Min-ho menekan pemicu di telapak tangannya. 
-
-*PSSSHHH!*
-
-Gas asam konsentrat menyembur langsung ke wajah algojo pertama. Daging pipi dan matanya melepuh mendesis seketika. Pria itu menjerit gila sambil mencakar wajahnya sendiri yang meleleh hingga tulang rahangnya terlihat.
-
-Algojo kedua mencoba memanfaatkan celah, menusukkan pisau ke rusuk Min-ho. Tapi Ryu Jin sudah berada di sana.
-
-Ryu Jin mencengkeram leher baju algojo itu dari belakang, menariknya kasar, lalu menghantamkan tempurung lututnya tepat ke dada musuh.
-
-*BUAGH!*
-
-Dua tulang rusuk algojo itu retak berderak. Ryu Jin tidak melepaskannya. Dengan satu gerakan memutar yang dingin, ia mematahkan leher pria itu.
-
-*KRAK.*
-
-Tubuh tanpa nyawa itu ambruk menghantam marmer yang kini basah dan licin oleh genangan darah dan cairan asam.
-
-Hanya dalam waktu empat puluh detik.
-
-Sepuluh algojo Cerberus tergeletak tak bernyawa. Bau anyir darah pekat, asam terbakar, dan isi perut yang bocor memenuhi Penthouse mewah itu. Dengungan bising akibat benturan keras berayun di telinga Kolonel Yoon yang gemetar di sudut ruangan.
-
-Kolonel Yoon merangkak mundur. Kakinya yang bergetar hebat menabrak kaki meja. Tangan kanannya secara berdarah-darah meraba lantai, mencari sesuatu di balik koper uang yang terguling.
-
-Sebuah pistol rahasia.
-
-Namun sebelum jemarinya berhasil menyentuh gagang senjata, sebuah ujung sepatu bot taktis menghantam pergelangan tangannya.
-
-*KRAKKK!*
-
-"AAAGHHH!" Kolonel Yoon menjerit histeris saat tulang pergelangan tangannya hancur tergencet di atas marmer.
-
-Ryu Jin berdiri di atasnya. 
-
-Baju mantel Ryu Jin ternoda cipratan darah segar di bagian dada. Napasnya pendek, konstan, dan stabil. Sepasang mata biru esnya menatap Kolonel Yoon yang terengah-engah dalam keputusasaan, memuntahkan air liur bercampur darah dari bibirnya yang pecah.
-
-Di lantai dekat tangan Kolonel Yoon yang hancur, sebuah telepon satelit kecil berpendar redup jatuh dari balik saku dalam jas sang Kolonel. Di layarnya yang retak, tertera satu nama kontak yang baru saja melakukan panggilan tak terjawab: **"Jenderal Kang - Komando Pusat"**.
-
-Shin-woo melangkah mendekat, meraih telepon satelit itu dan menyerahkannya kepada Ryu Jin.
-
-Ryu Jin menatap nama di layar telepon. Detail kecil yang menjadi kunci utama perburuan mereka selanjutnya di Korea.
-
-Ryu Jin berjongkok. Bau besi tua dan darah membakar hidung Kolonel Yoon dan Kwon Hyeok-tae saat wajah Ryu Jin berada hanya sepuluh senti dari muka mereka.
-
-"Bicaralah," suara Ryu Jin mengalir pelan dan tanpa ampun. "Atau si Jenius Sadis di sebelahku akan meneteskan asam ini ke tenggorokanmu."
-
-Kolonel Yoon dan Kwon Hyeok-tae menelan ludah dengan tenggorokan yang serak dan berdarah. Mata mereka dipenuhi ketakutan mutlak pada sang Arsitek Taktis.
-
-Perang di Kota Seora resmi meletus dalam darah.
-
----
-
-## BAB 54: PEMBERSIHAN TOTAL CERBERUS
-
-**Pukul 22.15 WIB.**
-**Zenith Tower, Penthouse Lantai 40, Distrik Pusat.**
-
-Hujan deras di luar kaca jendela penthouse memantulkan pendar merah dan biru lampu kota di kejauhan. 
-
-Di dalam ruangan seluas lima ratus meter persegi yang tadinya memancarkan kemewahan kelas atas itu, kini hanya ada keheningan mencekam. Bau tembakau mahal dan wiski berumur puluhan tahun telah sepenuhnya terkikis oleh bau anyir darah segar yang pekat, asap asam mendesis, dan bau seng dari isi perut sepuluh pengawal elit yang tergeletak tak bernyawa.
-
-Dua sosok paling berkuasa di bawah tanah Kota Seora kini tersungkur bersimbah darah di atas marmer hitam yang dingin: **Kolonel Yoon Sang-chul** dan **Kwon Hyeok-tae**—Pemimpin Tertinggi Cerberus Korea yang dijuluki *Sang Anjing Neraka*.
-
-Pergelangan tangan kanan Kolonel Yoon hancur tergencet di bawah sepatu bot taktis Ryu Jin. Sementara di sebelahnya, Kwon Hyeok-tae mengerang kaku di bawah injakan dada Han Shin-woo, dengan belati sungkurnya sendiri menancap melintasi telapak tangannya hingga mengunci ke marmer.
-
-Napas kedua pria korup itu tersengal-sengal parah. Mata mereka melotot ketakutan menatap kaku ke arah Choi Min-ho—si Jenius Sadis—yang berjongkok di hadapan mereka sambil memegang botol kaca berisi gas asam konsentrat yang mengepulkan asap beracun.
-
-"J-jangan... aku mohon, jangan!" ratap Kolonel Yoon dengan suara melengking serak, air mata keputusasaan bercampur keringat dan darah mengalir membahasi pipinya. "Aku akan ceritakan semuanya! Apapun yang kalian inginkan... akan kami berikan!"
-
-Ryu Jin menatap mereka dari atas dengan sepasang mata biru es yang dingin tanpa empati sedikit pun. Napas Ryu Jin konstan dan teratur, seolah baru saja menyelesaikan pembedahan medis yang tidak memerlukan emosi.
-
-"Pemimpin Cerberus dan perwira Angkatan Darat ada di satu tempat," suara Ryu Jin mengalir pelan dan tanpa ampun. "Kombinasi yang sempurna untuk mengakhiri pembusukan di kota ini."
-
-Kwon Hyeok-tae merintih menahan sakit yang membakar di tangannya, menatap Ryu Jin dengan sepasang mata merah penuh amarah dan keputusasaan. "K-kau... siapa kalian sebenarnya?! Cerberus didukung oleh aliansi tiga Yakuza Jepang dan kartel luar negeri! Jika kalian membunuhku malam ini, kalian tidak akan pernah selamat dari perburuan mereka!"
-
-Han Shin-woo menekan tumit kakinya lebih keras ke dada Kwon Hyeok-tae. 
-
-*KRAK!*
-
-Tulang dada sang Pemimpin Cerberus retak berderak. Kwon Hyeok-tae memuntahkan gumpalan darah kental ke udara.
-
-"Tiga Yakuza Jepang?" sela Shin-woo dengan seringai dingin. "Siapa pun pelindung kalian di Jepang, selagi kalian berdiri di sisi yang salah, kami yang akan berburu dan menghancurkan kalian semua."
-
-Mendengar ancaman dingin tanpa ragu tersebut, sepasang mata Kwon Hyeok-tae melotot lebar. Ketakutan yang jauh lebih pekat menyapu wajah sang Pemimpin Cerberus saat ia menyadari kekejaman tanpa ampun dari para pemburu di hadapannya.
-
-*BZZT.*
-
-Papan peranti taktis di lengan kiri Min-ho mendesis, memancarkan nada getar frekuensi satelit terenkripsi. 
+Papan peranti taktis di lengan kiri Min-ho mendesis, memancarkan nada getar frekuensi satelit terenkripsi.
 
 Min-ho mengetuk layarnya, mengaktifkan pemicu speaker komando. Suara berat Park Jin-woo mengalir lantang mengisi kehampaan penthouse, dipenuhi gema rentetan tembakan dan dentuman ledakan di latar belakangnya.
 
@@ -5095,15 +5109,15 @@ Shin-woo melirik Ryu Jin. Sudut bibirnya terangkat tipis. Park Jin-woo dan Lee J
 
 *["Siap, Bos Jin! Seluruh regu melaksanakan perintah!"]*
 
-Ryu Jin mematikan sambungan satelit. Sepasang mata biru esnya beralih kembali menatap Kwon Hyeok-tae dan Kolonel Yoon Sang-chul yang gemetar hebat di atas marmer basah.
+Ryu Jin mematikan sambungan satelit. Sepasang mata biru esnya beralih kembali menatap Kolonel Yoon Sang-chul yang gemetar hebat di atas marmer basah.
 
-"K-kau tidak bisa membunuh kami..." ratap Kolonel Yoon dengan mata memerah, memohon belas kasihan. "Aku bisa berikan kode akses pribadi untuk memancing Jenderal Kang keluar dari markas militer—"
+"K-kau tidak bisa membunuhku..." ratap Kolonel Yoon dengan mata memerah, memohon belas kasihan. "Aku bisa berikan kode akses pribadi untuk memancing Jenderal Kang keluar dari markas militer—"
 
 "Pengkhianat dan anjing penjagal," potong Ryu Jin dengan suara yang sedingin gletser, "tidak pernah memiliki hak untuk tawar-menawar."
 
-*DOR! DOR!*
+*DOR!*
 
-Ryu Jin menarik pemicu Revolver Magnum miliknya dua kali tanpa jeda sekejap pun. Peluru kaliber besar melesat menembus kening Kolonel Yoon Sang-chul. Benturan kinetik peluru menghancurkan tempurung kepala sang perwira korup.
+Ryu Jin menarik pemicu Revolver Magnum miliknya tanpa ragu. Peluru kaliber besar melesat menembus kening Kolonel Yoon Sang-chul. Benturan kinetik peluru menghancurkan tempurung kepala sang perwira korup.
 
 Kolonel Yoon ambruk tak bernyawa. Namun Kwon Hyeok-tae—Sang Pemimpin Tertinggi Cerberus—ternyata tidak berada di ruangan itu. Sang Anjing Neraka telah melarikan diri lebih dulu sebelum penyergapan.
 
@@ -5119,7 +5133,7 @@ Shin-woo melangkah menuju dinding kaca penthouse, menatap ke arah selatan Kota S
 
 "Cerberus sudah hampir hancur," ucap Shin-woo, jemarinya mengepal kencang. "Target kita berikutnya adalah menghabisi sang Pemimpin Tertinggi malam ini juga."
 
-Ryu Jin merapatkan mantel aramid hitamnya. 
+Ryu Jin merapatkan mantel aramid hitamnya.
 
 "Pembersihan Zenith Tower selesai," ucap Ryu Jin datar. "Kita berangkat memburu Sang Anjing Neraka."
 
@@ -5172,7 +5186,7 @@ Dua penjaga yang tersisa langsung menoleh, terkejut melihat siluet hitam melayan
 
 Kedua karambit Shin-woo menancap tepat di celah helm taktis dan pelindung leher kedua penjaga itu secara bersamaan. Shin-woo memutar bilahnya, merusak simpul saraf tulang belakang mereka dalam hitungan detik. Keduanya ambruk tanpa sempat menarik pelatuk.
 
-Di sisi lain galangan, sekelompok penjaga yang berjaga di dekat gardu listrik bunker menyadari hilangnya sinyal radio rekan mereka. 
+Di sisi lain galangan, sekelompok penjaga yang berjaga di dekat gardu listrik bunker menyadari hilangnya sinyal radio rekan mereka.
 
 "Tim Alpha tumbang! Posisi musuh tidak dikey—"
 
@@ -5182,13 +5196,13 @@ Sebuah tabung kecil melesat dari kegelapan dan pecah di tengah formasi mereka. A
 
 "Uhuk! A-apa ini—ARGHHH!"
 
-Gas asam konsentrat buatan Min-ho langsung bekerja. Kacamata taktis mereka meleleh. Para penjaga itu menjerit histeris, menjatuhkan senjata mereka sambil mencakar-cakar wajah dan tenggorokan mereka sendiri yang terbakar hebat oleh reaksi kimia korosif. 
+Gas asam konsentrat buatan Min-ho langsung bekerja. Kacamata taktis mereka meleleh. Para penjaga itu menjerit histeris, menjatuhkan senjata mereka sambil mencakar-cakar wajah dan tenggorokan mereka sendiri yang terbakar hebat oleh reaksi kimia korosif.
 
 Di tengah jeritan kematian itu, Min-ho melangkah santai menuju gardu listrik. Ia menempelkan peledak EMP di panel utama dan menekan pemicunya.
 
 *BZZZTTT! BOOM!*
 
-Gelombang elektromagnetik menyapu seluruh fasilitas bawah tanah. Kamera pengintai mati. Sistem hidrolik terkunci. 
+Gelombang elektromagnetik menyapu seluruh fasilitas bawah tanah. Kamera pengintai mati. Sistem hidrolik terkunci.
 
 Jalur menuju neraka telah terbuka.
 
@@ -5221,7 +5235,7 @@ Baju mantel hitamnya basah kuyup, meneteskan air hujan bercampur cipratan darah 
 
 Tiga pengawal elit yang tersisa langsung menarik pelatuk senapan mesin mereka. Rentetan peluru tajam membelah udara, menghancurkan meja, monitor, dan dinding beton.
 
-Namun, kemampuan kalkulasi otak Ryu Jin berada jauh di atas refleks manusia normal. Di matanya, lintasan peluru-peluru itu bergerak seolah dalam tayangan lambat. Ia menggeser tubuhnya sedikit ke kiri, menunduk tajam, lalu melesat maju bagaikan hantu kinetik.
+Ryu Jin sudah membaca arah moncong senjata mereka sebelum pelatuk ditekan. Ia menjatuhkan tubuh ke balik pintu baja yang terpelanting, membiarkan rentetan peluru menghantam pelat logam tebal itu, lalu berpindah melalui sisi kiri saat ketiga pengawal kehilangan garis tembak.
 
 Tangan kanan Ryu Jin bergerak secepat kilat, melempar tiga paku baja secara tepat dari sela jemarinya.
 
@@ -5233,9 +5247,9 @@ Tiga paku baja itu menembus lurus melalui celah kacamata pelindung ketiga pengaw
 
 Hening. Suara tembakan senapan mesin terhenti secara mendadak, menyisakan gema memekakkan telinga di dalam bunker beton tersebut.
 
-Teknisi siber yang ketakutan langsung jatuh pingsan dan mengompol di celananya. 
+Teknisi siber yang ketakutan langsung jatuh pingsan dan mengompol di celananya.
 
-Kini, hanya tersisa Kwon Hyeok-tae. Sang Pemimpin Cerberus berdiri mematung. Ransel emas di tangannya terjatuh ke lantai. Lututnya bergetar hebat. Aura membunuh yang memancar dari tubuh pemuda berusia sembilan belas tahun di hadapannya itu begitu pekat dan menyesakkan napas.
+Kini, hanya tersisa Kwon Hyeok-tae. Sang Pemimpin Cerberus berdiri mematung. Ransel emas di tangannya terjatuh ke lantai. Lututnya bergetar hebat. Aura membunuh yang memancar dari tubuh pemuda berusia dua puluh tahun di hadapannya itu begitu pekat dan menyesakkan napas.
 
 "J-jangan mendekat!" Kwon Hyeok-tae mundur terbata-bata, mencabut pistol dari pinggangnya dan menodongkannya ke arah Ryu Jin. "A-aku punya lima ratus miliar won! Semuanya milikmu! Ambil semuanya! Biarkan aku pergi!"
 
@@ -5251,7 +5265,7 @@ Ryu Jin memiringkan kepalanya sedikit. Peluru itu mendesing melewati telinganya 
 
 *KRAKKK!*
 
-"AAARRRGGHH!" 
+"AAARRRGGHH!"
 
 Kwon menjerit melengking saat pergelangan tangannya dipatahkan seratus delapan puluh derajat ke belakang. Pistolnya terjatuh. Ryu Jin menendang tempurung lutut pria itu hingga hancur berantakan.
 
@@ -5263,11 +5277,11 @@ Sebuah koin dengan ukiran naga yang melilit sepasang pedang.
 
 Ryu Jin menjatuhkan koin itu. Benda logam tersebut berdenting nyaring saat menghantam lantai marmer, berputar pelan, lalu berhenti tepat di bawah pandangan Kwon Hyeok-tae.
 
-Napas Kwon seketika terhenti. Matanya membelalak lebar, urat-urat matanya nyaris pecah melihat ukiran naga tersebut. Simbol yang tidak mungkin ia lupakan. Simbol klan terkuat yang pernah ia hancurkan bersama para jenderal korup sepuluh tahun silam.
+Napas Kwon seketika terhenti. Matanya membelalak lebar, urat-urat matanya nyaris pecah melihat ukiran naga tersebut. Simbol yang tidak mungkin ia lupakan. Simbol klan terkuat yang pernah ia bantu hancurkan bersama para jenderal korup lima tahun silam.
 
 "G-Genryu-kai..." bisik Kwon dengan bibir bergetar pucat pasi. Ia mendongak menatap wajah tenang Ryu Jin, dan saat itulah ia akhirnya menyadari kemiripan garis rahang dan sorot mata pemuda itu. "...Ryu... Kenzo. K-kau... putra Ryu Kenzo!"
 
-"Sepuluh tahun," ucap Ryu Jin pelan, menarik Revolver Magnum berlaras panjang dari balik mantelnya. Ia menempelkan ujung laras logam yang dingin itu tepat di tengah kening Kwon Hyeok-tae. "Neraka sudah lama menunggumu, Anjing Neraka."
+"Lima tahun," ucap Ryu Jin pelan, menarik Revolver Magnum berlaras panjang dari balik mantelnya. Ia menempelkan ujung laras logam yang dingin itu tepat di tengah kening Kwon Hyeok-tae. "Neraka sudah lama menunggumu, Anjing Neraka."
 
 Kwon Hyeok-tae meratap, memohon ampun dengan suara yang putus asa. "Tidak... tidaakkk!!!"
 
@@ -5275,7 +5289,7 @@ Kwon Hyeok-tae meratap, memohon ampun dengan suara yang putus asa. "Tidak... tid
 
 Peluru kaliber besar meledak keluar dari laras Magnum, menembus lurus tempurung kepala Kwon Hyeok-tae dan menghancurkan otak belakangnya seketika. Darah dan materi abu-abu menyembur ke dinding beton di belakangnya bagaikan lukisan kematian.
 
-Tubuh tak bernyawa sang Pemimpin Cerberus ambruk menimpa tumpukan koin tembaga Genryu-kai.
+Tubuh tak bernyawa sang Pemimpin Cerberus ambruk di samping koin tembaga Genryu-kai.
 
 Kota Seora akhirnya bersih total. Cerberus telah musnah hingga ke akar-akarnya.
 
@@ -5310,19 +5324,19 @@ Langkah mereka kini tak lagi tertahan. Target selanjutnya: Markas Bayangan Koman
 **Pukul 00.15 WIB Dini Hari.**
 **Jalan Tol Lintas Selatan, Arah Ibu Kota Seoul.**
 
-Hujan badai masih mengguyur aspal hitam jalan tol dengan sangat deras. Hembusan angin kencang membuat bodi SUV hitam bergoyang pelan saat melaju membelah kegelapan malam dengan kecepatan tinggi. 
+Hujan badai masih mengguyur aspal hitam jalan tol dengan sangat deras. Hembusan angin kencang membuat bodi SUV hitam bergoyang pelan saat melaju membelah kegelapan malam dengan kecepatan tinggi.
 
 Di dalam kabin mobil yang senyap, keheningan terasa begitu dingin dan mencekik. Hanya ada suara sapuan wiper kaca depan yang bergerak konstan berdecit pelan, serta deru putaran mesin mobil yang dipaksa bekerja pada batas maksimalnya. Udara dingin dari ventilasi AC berbaur dengan bau khas kulit jok mobil, aroma saringan udara basah, dan sisa bau mesiu tipis yang menempel di jaket mereka.
 
 Ryu Jin mencengkeram kemudi dengan mantap. Sepasang mata biru es miliknya menatap lurus menembus kabut tebal jalanan depan, tidak menunjukkan getaran emosi atau kelelahan sedikit pun.
 
-Di kursi samping kemudi, Han Shin-woo duduk bersandar tenang. Tangannya yang ramping bergerak dengan kelenturan refleks yang senyap, menyeka sisa noda darah mengering di bilah pisau karambit ganda miliknya menggunakan selembar saputangan putih. 
+Di kursi samping kemudi, Han Shin-woo duduk bersandar tenang. Tangannya yang ramping bergerak dengan kelenturan refleks yang senyap, menyeka sisa noda darah mengering di bilah pisau karambit ganda miliknya menggunakan selembar saputangan putih.
 
 Mata Shin-woo menatap lurus ke arah kegelapan luar jendela yang basah oleh air hujan. Pikirannya melayang pada kasus ayahnya, Hakim Han Sung-jae, yang berkas penyelidikannya sengaja dihancurkan oleh kekuasaan militer lima tahun lalu.
 
 "Jenderal Kang Chul-min," bisik Shin-woo lirih, suaranya teredam oleh desau angin luar. "Dia yang menandatangani dokumen penutupan kasus ayahku di tingkat kementerian pertahanan."
 
-Ryu Jin tidak menoleh. Jemari tangan kirinya mengetuk kemudi mobil secara ritmis, menghitung jarak tempuh secara matematis di dalam otaknya. 
+Ryu Jin tidak menoleh. Jemari tangan kirinya mengetuk kemudi mobil secara ritmis, menghitung jarak tempuh secara matematis di dalam otaknya.
 
 "Kematian ayahmu dan seluruh skenario pembungkaman lima tahun lalu berasal dari satu orang yang sama," suara Jin mengalir datar dan dingin. "Kang Chul-min bukan sekadar jenderal korup. Dia adalah jembatan utama yang menghubungkan dana suap industri pertahanan dengan sindikat kasino di Seora."
 
@@ -5348,9 +5362,9 @@ Ryu Jin mendengarkan penjelasan Min-ho dengan cermat. Analisis taktis di otaknya
 
 *BZZZT!*
 
-Ponsel terenkripsi di dasbor mobil mendadak bergetar pelan. Ryu Jin menekan tombol interkom nirkabel di kemudinya. 
+Ponsel terenkripsi di dasbor mobil mendadak bergetar pelan. Ryu Jin menekan tombol interkom nirkabel di kemudinya.
 
-Suara berat dan tergesa-gesa milik **Ketua Detektif Nasional Lee Tae-gyu** terdengar dari pengeras suara mobil:
+Suara berat dan tergesa-gesa milik **Kepala Satuan Tugas Nasional Antisindikat Lee Tae-gyu** terdengar dari pengeras suara mobil:
 
 *["Jin? Kau mendengarku? Tim agenku baru saja menyadap pesan terenkripsi dari kementerian pertahanan. Jenderal Kang Chul-min sudah tahu bahwa Kolonel Yoon Sang-chul dieksekusi di Zenith Tower. Dia memindahkan seluruh regu pengawal pribadinya ke Bunker Sektor Sembilan."]*
 
@@ -5445,15 +5459,15 @@ Bersamaan dengan selesainya kalimat tersebut, dari balik pintu besi lift bagian 
 **Pukul 00.30 WIB Dini Hari.**
 **Bunker Bawah Tanah Bunker Sektor Sembilan.**
 
-Desis udara dari katup hidrolik yang terkunci terdengar berat di dalam poros lift kargo yang menggantung kaku. Pendar lampu merah darurat memantul di mata biru dingin milik Ryu Jin dan bilah besi karambit Han Shin-woo yang berkilau tajam. 
+Desis udara dari katup hidrolik yang terkunci terdengar berat di dalam poros lift kargo yang menggantung kaku. Pendar lampu merah darurat memantul di mata biru dingin milik Ryu Jin dan bilah besi karambit Han Shin-woo yang berkilau tajam.
 
 Di luar dinding lift besi, suara klik kokangan puluhan senapan serbu otomatis militer terdengar serempak, bersiap memuntahkan ratusan butir peluru begitu pintu baja itu terbuka.
 
-Ryu Jin menatap langit-langit lift baja yang memiliki pintu lubang pemeliharaan darurat di bagian tengahnya. 
+Ryu Jin menatap langit-langit lift baja yang memiliki pintu lubang pemeliharaan darurat di bagian tengahnya.
 
 "Shin-woo, naik ke atas poros," perintah Jin dengan suara datar yang tidak menunjukkan kepanikan sedikit pun. "Min-ho, siapkan bom gas asam di celah pintu bawah."
 
-"Mengerti," sahut Shin-woo singkat. 
+"Mengerti," sahut Shin-woo singkat.
 
 Dengan kelincahan luar biasa, Shin-woo melompat, menjadikan pundak Ryu Jin sebagai pijakan kaki, dan menjangkau pintu darurat plafon lift. Hanya dalam satu gerakan meliuk yang luwes, tubuh Shin-woo telah menghilang ke dalam kegelapan poros lift bagian atas.
 
@@ -5477,7 +5491,7 @@ Sementara itu, dari atas poros lift yang gelap gulita, Han Shin-woo meluncur tur
 
 Dengan satu gerakan mengalir yang luwes, Shin-woo memutar posisi karambit ganda di jemarinya. Pisau melengkung di tangan kanannya mengait rahang bawah helm musuh, menariknya ke belakang hingga mengekspos leher bagian bawah, sementara karambit kirinya menyayat urat tendon di belakang lutut korban. Prajurit itu roboh secara instan tanpa sempat berteriak, tenggorokannya robek sebelum tubuhnya menghantam lantai beton.
 
-Dua prajurit di dekatnya menyadari serangan itu dan langsung memutar moncong senjata mereka. Namun, Shin-woo menjatuhkan tubuhnya sangat rendah hingga nyaris menyentuh lantai. 
+Dua prajurit di dekatnya menyadari serangan itu dan langsung memutar moncong senjata mereka. Namun, Shin-woo menjatuhkan tubuhnya sangat rendah hingga nyaris menyentuh lantai.
 
 Ia berputar dengan tumpuan satu tangan, melakukan sapuan kaki melingkar yang meruntuhkan keseimbangan prajurit terdekat. Bersamaan dengan jatuhnya musuh, Shin-woo melesat maju dalam gerakan spiral, menghunjamkan mata karambitnya secara vertikal ke celah pelindung ketiak baja musuh—titik terlemah di mana tidak ada pelat pelindung yang menghalangi aliran darah utama mereka.
 
@@ -5487,13 +5501,13 @@ Di saat yang sama, Ryu Jin melesat keluar dari balik bayangan bawah lift. Langka
 
 Seorang kombatan Erebus bertubuh kekar merangsek maju, mencoba menghantam kepala Jin dengan popor senapan serbunya. Jin tidak mundur. Ia memiringkan kepalanya sejauh beberapa milimeter, membiarkan popor senjata lewat di samping telinganya, lalu menyusupkan tangan kirinya di bawah lengan musuh.
 
-Dengan sentakan bahu yang memanfaatkan momentum berat tubuh musuh, Jin memutar pergelangan tangan lawan ke arah luar. Bunyi derak keras sendi bahu yang terlepas terdengar jelas. 
+Dengan sentakan bahu yang memanfaatkan momentum berat tubuh musuh, Jin memutar pergelangan tangan lawan ke arah luar. Bunyi derak keras sendi bahu yang terlepas terdengar jelas.
 
 Sebelum prajurit itu sempat berteriak, Jin merampas pistol di sabuk musuh, mengarahkannya ke bawah dagu prajurit kedua yang mencoba mendekat, dan menarik pelatuknya dua kali secara beruntun.
 
 *BANG! BANG!*
 
-Prajurit kedua tumbang dengan kepala berlubang. Ryu Jin melempar pistol kosong itu tepat ke arah wajah prajurit ketiga untuk memecah fokusnya, sementara tangan kanannya menjentikkan dua baut baja tebal dengan kecepatan tinggi dari sela jemarinya. 
+Prajurit kedua tumbang dengan kepala berlubang. Ryu Jin melempar pistol kosong itu tepat ke arah wajah prajurit ketiga untuk memecah fokusnya, sementara tangan kanannya menjentikkan dua baut baja tebal dengan kecepatan tinggi dari sela jemarinya.
 
 *SRET! SRET!*
 
@@ -5505,7 +5519,7 @@ Di barisan belakang, Choi Min-ho bergerak aktif mendukung pertarungan jarak deka
 
 *SPARK!*
 
-Tebasan pisau itu tertahan oleh medan magnet yang memercikkan listrik tegangan tinggi. Min-ho mencengkeram pergelangan tangan kapten tersebut, mengalirkan sengatan listrik ribuan volt dari sarung tangan taktisnya yang membuat tubuh kapten itu kejang hebat dan lemas seketika. 
+Tebasan pisau itu tertahan oleh medan magnet yang memercikkan listrik tegangan tinggi. Min-ho mencengkeram pergelangan tangan kapten tersebut, mengalirkan sengatan listrik ribuan volt dari sarung tangan taktisnya yang membuat tubuh kapten itu kejang hebat dan lemas seketika.
 
 Dengan berguling ke samping untuk menghindari peluru nyasar, Min-ho melempar tiga drone mikro berbentuk serangga ke udara. Drone-drone itu melesat cepat ke arah penembak senapan mesin musuh, meledakkan diri dalam kilatan cahaya menyilaukan dan frekuensi suara yang memekakkan telinga.
 
@@ -5513,7 +5527,7 @@ Dengan berguling ke samping untuk menghindari peluru nyasar, Min-ho melempar tig
 
 "Mataku! Aku tidak bisa melihat!" teriak penembak mesin itu sambil menembak secara liar ke langit-langit.
 
-Shin-woo memanfaatkan kebutaan musuh tersebut. Ia melompat dari balik pilar beton, mengaitkan lubang cincin karambitnya ke jari pelatuk senapan mesin musuh, lalu memutarnya dengan paksa hingga jari tersebut patah. 
+Shin-woo memanfaatkan kebutaan musuh tersebut. Ia melompat dari balik pilar beton, mengaitkan lubang cincin karambitnya ke jari pelatuk senapan mesin musuh, lalu memutarnya dengan paksa hingga jari tersebut patah.
 
 Sebelum musuh sempat mundur, Shin-woo memutar tubuhnya di belakang punggung prajurit tersebut, menjadikannya sebagai perisai hidup dari rentetan tembakan yang dilepaskan oleh rekan musuh itu sendiri.
 
@@ -5521,7 +5535,7 @@ Sebelum musuh sempat mundur, Shin-woo memutar tubuhnya di belakang punggung praj
 
 Tubuh prajurit yang dijadikan perisai itu berlubang dihantam peluru temannya. Begitu tembakan musuh terhenti karena kehabisan peluru, Shin-woo mendorong mayat di tangannya maju, melesat di balik mayat tersebut, dan menyabetkan karambitnya ke arah tenggorokan penembak kedua dalam satu sapuan melengkung yang mematikan.
 
-Ryu Jin mengakhiri pertarungan di koridor utama dengan koreografi gerakan bela diri yang sangat rapi dan dingin. Menghadapi Mayor Jenderal Song yang menarik pisau belati militernya, Jin melangkah menyamping, membiarkan tikaman belati lewat di depan dadanya. 
+Ryu Jin mengakhiri pertarungan di koridor utama dengan koreografi gerakan bela diri yang sangat rapi dan dingin. Menghadapi Mayor Jenderal Song yang menarik pisau belati militernya, Jin melangkah menyamping, membiarkan tikaman belati lewat di depan dadanya.
 
 Tangan kanan Jin menangkap siku Song, sementara tangan kirinya menghantam ulu hati sang Mayor Jenderal dengan pukulan telapak tangan terbuka yang menghancurkan napasnya. Dengan satu putaran pinggul yang cepat, Jin menyapu kaki tumpuan Song, menghempaskannya ke lantai beton dengan sangat keras, lalu menancapkan pisau taktisnya tepat di sela sambungan leher pelindung baja sang Mayor Jenderal.
 
@@ -5543,7 +5557,7 @@ Ryu Jin melangkah masuk terlebih dahulu dengan senjata siap tempur di tangannya.
 
 Ruangan di balik pintu baja itu sangat luas, kedap suara, dan memiliki interior marmer hitam mewah yang kontras dengan dinding beton yang kusam. Di tengah ruangan, berdiri sebuah meja kerja marmer hitam besar yang dipenuhi layar monitor pemantau satelit militer.
 
-Di balik meja itu, berdiri **Jenderal Kang Chul-min**. 
+Di balik meja itu, berdiri **Jenderal Kang Chul-min**.
 
 Seragam militer lengkap dengan barisan lencana kehormatan tampak terpasang rapi di tubuhnya yang tegap meski rambutnya telah memutih. Wajahnya yang keriput tampak sangat tenang, dengan seringai sinis yang tersungging di bibirnya. Tangan kanannya memegang sebuah pistol revolver berlapis krom, sementara tangan kirinya menggenggam sebuah detonator genggam berlampu merah berkedip cepat.
 
@@ -5630,13 +5644,13 @@ Jin membuka map itu dengan satu sentakan cepat. Beberapa lembar dokumen rahasia 
 
 Han Shin-woo yang sedang menekan leher Jenderal Kang melirik ke arah dokumen tersebut. Pupil matanya seketika membelalak lebar melihat nama ayahnya bersanding dengan lambang koin naga bersilang pedang yang sangat familier.
 
-"Ini... berkas penyelidikan kasus ayahku?" bisik Shin-woo lirih, suaranya bergetar hebat. Matanya beralih menatap lembar dokumen Genryu-kai. "Genryu-kai... klan Yakuza terkuat yang hancur dalam tragedi pembantaian berdarah di Kyoto sepuluh tahun lalu?"
+"Ini... berkas penyelidikan kasus ayahku?" bisik Shin-woo lirih, suaranya bergetar hebat. Matanya beralih menatap lembar dokumen Genryu-kai. "Genryu-kai... klan Yakuza terkuat yang hancur dalam tragedi pembantaian berdarah di Kyoto lima tahun lalu?"
 
 Min-ho melirik ke arah layar ponsel taktisnya yang sedang memproses persentase unduhan data. Matanya membelalak terkejut saat membaca ringkasan berkas rahasia milik Jenderal Kang yang terunduh di ponselnya. "Tragedi Kyoto yang menewaskan Ryu Kenzo, pemilik Ryu Energy Group... Jin, jangan-jangan kau adalah anak laki-laki yang dikabarkan menghilang di malam kejadian tersebut? Berkas digital di penyimpanan Jenderal ini mencantumkan nama keluargamu sebagai target pembungkaman internasional!"
 
 Ryu Jin menatap Jenderal Kang yang terengah-engah di bawah paku pisaunya. Aura dingin dari mata birunya memancarkan ancaman kematian yang mutlak.
 
-"Apapun yang mereka lakukan, selagi mereka berada di sisi yang salah, aku akan menghancurkan mereka dan semuanya," suara Jin mengalir pelan namun penuh getaran tekad baja. Jin menekan pisau taktis di bahu Jenderal Kang lebih dalam. "Siapa yang memerintahkan pembantaian klan Genryu-kai sepuluh tahun lalu di Kyoto?"
+"Apa pun yang mereka lakukan, selagi mereka berada di sisi yang salah, aku akan menghancurkan mereka dan semuanya," suara Jin mengalir pelan namun penuh getaran tekad baja. Jin menekan pisau taktis di bahu Jenderal Kang lebih dalam. "Siapa yang memerintahkan pembantaian klan Genryu-kai lima tahun lalu di Kyoto?"
 
 Jenderal Kang meringis kesakitan, matanya menatap liar ke arah waktu hitung mundur yang semakin menipis di layar dinding.
 
@@ -5726,9 +5740,9 @@ Han Shin-woo yang tadinya bersandar di dinding semen langsung menegakkan tubuhny
 
 "Lalu, apa yang dia lakukan dengan data itu?" tekan Jin, tatapannya tidak beralih dari dokumen rahasia tersebut.
 
-Min-ho menggeser kursor ke bawah, menampilkan log pengiriman surel terenkripsi yang dikirim tiga hari lalu dari terminal Jenderal Kang. 
+Min-ho menggeser kursor ke bawah, menampilkan log pengiriman surel terenkripsi yang dikirim tiga hari lalu dari terminal Jenderal Kang.
 
-"Jenderal Kang mengirimkan seluruh berkas kelemahan pertahanan benteng kita kepada sebuah alamat server satelit di Bangkok. Penerimanya adalah **Tawan**, pimpinan tertinggi **Kartel Black Ant**," ungkap Min-ho dingin. "Surel balasan dari mereka mengonfirmasi bahwa mereka telah mengumpulkan sisa-sisa tentara bayaran Hydra dan Mamba untuk melakukan penyerbuan gabungan dalam waktu empat puluh delapan jam ke depan."
+"Jenderal Kang mengirimkan seluruh berkas kelemahan pertahanan benteng kita kepada sebuah alamat server satelit di Bangkok. Penerimanya adalah **Krao**, pimpinan tertinggi **Kartel Black Ant**," ungkap Min-ho dingin. "Surel balasan dari mereka mengonfirmasi bahwa mereka telah mengumpulkan sisa-sisa tentara bayaran Hydra dan Mamba untuk melakukan penyerbuan gabungan dalam waktu empat puluh delapan jam ke depan."
 
 Informasi itu bagaikan hantaman godam di tengah keheningan pagi. Benteng Black Valley, rumah baru bagi ratusan warga sipil pelarian Desa Phra Khann dan basis kekuatan tempur utama ORCA, kini berada di ujung tanduk kehancuran akibat pembocoran data tersebut.
 
@@ -5778,15 +5792,15 @@ Mesin kapal cepat berdentum rendah membelah kesunyian laut berkabut. Trio Predat
 **Pukul 09.00 Pagi.**
 **Kota Seoul dan Tokyo.**
 
-Saat kapal cepat *Oasis-III* telah jauh menembus perbatasan perairan internasional, kejutan besar yang sesungguhnya baru saja dimulai di daratan Korea. 
+Saat kapal cepat *Oasis-III* telah jauh menembus perbatasan perairan internasional, kejutan besar yang sesungguhnya baru saja dimulai di daratan Korea.
 
 Di dalam kabin kapal yang bergoyang menembus ombak, Min-ho meluncurkan naskah program otomatis dari ponsel taktisnya yang terhubung ke jaringan internet satelit aman. Seluruh berkas digital, rekaman pembicaraan suap, transaksi rekening luar negeri, dan dokumen otopsi palsu Hakim Han Sung-jae yang mereka rampas dari komputer Jenderal Kang dipublikasikan secara anonim.
 
 Min-ho mengunggah data-data sensitif tersebut secara lengkap di beberapa situs web khusus dan akun media sosial baru yang telah ia rancang dengan sistem keamanan berlapis agar tidak bisa dihapus oleh sensor pemerintah. Tidak hanya itu, Min-ho menggunakan sisa dana Cerberus untuk membeli kampanye iklan berbayar di berbagai platform media sosial utama selama satu bulan penuh. Strategi iklan ini membuat jangkauan berita melesat secara eksponensial dalam hitungan jam, membanjiri beranda jutaan pengguna internet.
 
-Dampaknya sangat luar biasa. Kabar tersebut menjadi viral dan menjadi topik perbincangan terhangat secara nasional. Media arus utama Korea Selatan yang tadinya bungkam terpaksa meliput karena tekanan opini publik yang sangat masif. 
+Dampaknya sangat luar biasa. Kabar tersebut menjadi viral dan menjadi topik perbincangan terhangat secara nasional. Media arus utama Korea Selatan yang tadinya bungkam terpaksa meliput karena tekanan opini publik yang sangat masif.
 
-Di gedung kepolisian nasional, Ketua Detektif Lee Tae-gyu bergerak cepat bersama timnya. Berbekal bukti forensik digital yang sangat lengkap dan valid, ia langsung memimpin operasi penangkapan besar-besaran. Beberapa pejabat tinggi kementerian, perwira militer aktif yang menjadi kaki tangan Jenderal Kang, dan eksekutif korup diseret keluar dari kantor mereka dalam borgol besi, menghadapi tuntutan hukuman penjara seumur hidup yang tak terelakkan.
+Di gedung kepolisian nasional, Kepala Satuan Tugas Lee Tae-gyu bergerak cepat bersama timnya. Berbekal bukti forensik digital yang sangat lengkap dan valid, ia langsung memimpin operasi penangkapan besar-besaran. Beberapa pejabat tinggi kementerian, perwira militer aktif yang menjadi kaki tangan Jenderal Kang, dan eksekutif korup diseret keluar dari kantor mereka dalam borgol besi, menghadapi tuntutan hukuman penjara seumur hidup yang tak terelakkan.
 
 Gema kegaduhan tersebut tidak berhenti di semenanjung Korea, melainkan melompat menyeberangi laut timur hingga mengguncang Tokyo.
 
@@ -5867,17 +5881,17 @@ Pukul 22.00 Malam.
 
 Kapal cepat *Oasis-III* merapat senyap di dermaga pangkalan udara militer rahasia pesisir timur. Di bawah guyuran gerimis tipis yang dingin, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di ujung landasan pacu yang sunyi. Kulit karbon pesawat itu nampak menyerap cahaya rembulan malam, memancarkan aura misterius yang mematikan.
 
-Trio Predator melangkah cepat menaiki tangga jet siluman tersebut. Di dalam kabin jet yang sempit dan dipenuhi barisan instrumen navigasi taktis, mereka mengenakan rompi pelindung hitam dan ransel parasut taktis dengan bantuan kru penerbang militer. 
+Trio Predator melangkah cepat menaiki tangga jet siluman tersebut. Di dalam kabin jet yang sempit dan dipenuhi barisan instrumen navigasi taktis, mereka mengenakan rompi pelindung hitam dan ransel parasut taktis dengan bantuan kru penerbang militer.
 
 *BZZZZT!*
 
-Pintu jet tertutup rapat, dan mesin jet siluman berdentum halus tanpa suara bising saat lepas landas membelah langit malam Korea Selatan. 
+Pintu jet tertutup rapat, dan mesin jet siluman berdentum halus tanpa suara bising saat lepas landas membelah langit malam Korea Selatan.
 
-Di dalam kabin jet yang melesat secepat suara menembus awan badai, Ryu Jin duduk tenang memejamkan matanya. Tangan kirinya meraba koin naga bersilang pedang di saku mantelnya. Di otaknya, ia tidak sedang menyusun rencana penembakan menggunakan senapan serbu otomatis. Ia sedang menghitung sudut tebasan pedang dan lintasan saraf vital yang akan ia lumatkan menggunakan pedang samurai and baut baja miliknya. Jin teringat kata-kata Bos Takamori bahwa senjata api bisa kehabisan peluru atau macet di tengah lumpur, namun pedang baja adalah ekstensi langsung dari kehendak mutlak penggunanya yang tidak akan pernah berkhianat.
+Di dalam kabin jet yang melesat secepat suara menembus awan badai, Ryu Jin duduk tenang memejamkan matanya. Tangan kirinya meraba koin naga bersilang pedang di saku mantelnya. Di otaknya, ia tidak sedang menyusun rencana penembakan menggunakan senapan serbu otomatis. Ia sedang menghitung sudut tebasan pedang dan lintasan saraf vital yang akan ia lumatkan menggunakan pedang samurai dan baut baja miliknya. Jin teringat kata-kata Bos Takamori bahwa senjata api bisa kehabisan peluru atau macet di tengah lumpur, namun pedang baja adalah ekstensi langsung dari kehendak mutlak penggunanya yang tidak akan pernah berkhianat.
 
 Min-ho mengetuk layar ponselnya, memeriksa data radar cuaca terkini di perbatasan Thailand. "Jin, laporan cuaca menunjukkan badai petir besar sedang melanda hutan bambu utara. Ini menguntungkan karena radar musuh di bawah akan kacau, tapi penerjunan kita akan sangat berbahaya karena hembusan angin kencang."
 
-Shin-woo menyeringai dingin sambil mengencangkan tali parasutnya. "Angin kencang and badai petir... skenario pendaratan yang sempurna untuk menyambut para tikus kartel itu."
+Shin-woo menyeringai dingin sambil mengencangkan tali parasutnya. "Angin kencang dan badai petir... skenario pendaratan yang sempurna untuk menyambut para tikus kartel itu."
 
 Jet siluman berguncang pelan saat mulai melakukan manuver menukik tajam menembus awan badai Thailand. Lampu hijau di atas pintu keluar kabin mulai berkedip cepat, menandai waktu penerjunan yang tinggal hitungan detik.
 
@@ -5889,7 +5903,7 @@ Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai aka
 
 Petir menyambar membelah langit malam Thailand yang gelap gulita, menciptakan kilatan cahaya putih bising yang menerangi puncak bukit. Di bawah awan badai hitam yang bergulung, tiga sosok bayangan melompat keluar dari pintu darurat jet siluman militer pada ketinggian ribuan kaki. Terpaan angin kencang bertekanan tinggi menghantam bodi rompi mereka saat meluncur bebas menembus kegelapan malam, sebelum akhirnya parasut taktis hitam pekat mereka mengembang sempurna secara senyap.
 
-Mereka mendarat dengan mulus di lereng bukit curam yang dipenuhi rimbunnya pohon bambu yang rapat. Ryu Jin melepaskan sabuk parasutnya dengan satu tarikan cepat, berguling di atas tanah berlumpur untuk menyerap momentum jatuhnya. Di sebelahnya, Han Shin-woo and Choi Min-ho melakukan gerakan serupa dengan refleks yang sangat terlatih. Tubuh mereka langsung basah kuyup dihantam derasnya air hujan pegunungan yang dingin menggigit tulang. Bau tanah basah, aroma getah bambu yang tajam, and hawa dingin pegunungan langsung menyelimuti indra penciuman mereka.
+Mereka mendarat dengan mulus di lereng bukit curam yang dipenuhi rimbunnya pohon bambu yang rapat. Ryu Jin melepaskan sabuk parasutnya dengan satu tarikan cepat, berguling di atas tanah berlumpur untuk menyerap momentum jatuhnya. Di sebelahnya, Han Shin-woo dan Choi Min-ho melakukan gerakan serupa dengan refleks yang sangat terlatih. Tubuh mereka langsung basah kuyup dihantam derasnya air hujan pegunungan yang dingin menggigit tulang. Bau tanah basah, aroma getah bambu yang tajam, dan hawa dingin pegunungan langsung menyelimuti indra penciuman mereka.
 
 Dari arah lembah yang berjarak sekitar dua kilometer, gema dentuman meriam mortar terdengar beruntun mengguncang tanah di bawah kaki mereka.
 
@@ -5897,17 +5911,17 @@ Dari arah lembah yang berjarak sekitar dua kilometer, gema dentuman meriam morta
 
 "Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air. "Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding semen benteng ORCA akan jebol sebelum fajar."
 
-Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh jaringan lokal Grey Hawk. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang and kantong kulit hitam tebal.
+Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh jaringan lokal Grey Hawk. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
 
 ***
 
 Ryu Jin melangkah mendekati kotak kayu tersebut. Ia membuka kancing kulitnya, memaparkan sebuah pedang katana tradisional Jepang dengan sarung kayu hitam mengilap berukir lambang naga bersilang pedang. Jin menggenggam gagang pedang tersebut, menariknya sedikit keluar dari sarungnya. Bilah baja pedang itu berkilau dingin, memantulkan kilatan petir di langit dengan ketajaman yang mengerikan. Jin merasakan keseimbangan berat pedang itu yang sangat sempurna di tangannya. Ia teringat kembali latihan pedang keras yang ia jalani di kuil Kyoto bersama Bos Takamori, melatih otot pergelangan tangannya untuk menarik bilah pedang dalam pecahan detik secara konstan.
 
-Jin menyarungkan kembali pedang tersebut and mengikatnya erat di pinggang kirinya. Ia kemudian mengambil kantong kulit hitam yang berisi dua puluh baut baja tebal and menyelipkannya di sabuk taktis dada.
+Jin menyarungkan kembali pedang tersebut dan mengikatnya erat di pinggang kirinya. Ia kemudian mengambil kantong kulit hitam yang berisi dua puluh baut baja tebal dan menyelipkannya di sabuk taktis dada.
 
 "Kau benar-benar tidak ingin membawa senapan serbu, Jin?" tanya Shin-woo sambil memeriksa isi magasin senapan mesin ringan miliknya.
 
-"Dalam kegelapan and badai seperti ini, suara tembakan senjata api hanya akan membocorkan posisi kita," jawab Jin datar. "Pedang ini tidak akan kehabisan peluru."
+"Dalam kegelapan dan badai seperti ini, suara tembakan senjata api hanya akan membocorkan posisi kita," jawab Jin datar. "Pedang ini tidak akan kehabisan peluru."
 
 Min-ho menghidupkan mesin motor trailnya yang telah dimodifikasi khusus agar suara knalpotnya terdengar sangat senyap, nyaris tenggelam oleh derasnya suara air hujan. "Aku sudah memetakan posisi unit artileri musuh. Ada sekitar lima belas kombatan Kartel Black Ant yang menjaga dua pos mortar di balik bukit bambu ini."
 
@@ -5927,7 +5941,7 @@ Sebelum Shin-woo sempat menjawab, Jin melesat maju bagaikan kilatan petir di ten
 
 *SRET!*
 
-Bilah katana Jin meluncur keluar dari sarungnya dalam satu lecutan melengkung yang sangat cepat and akurat. Tebasan pedang itu menggunakan momentum putaran tubuhnya, memotong tenggorokan dua penjaga terdekat secara bersamaan sebelum mereka sempat menyadari kehadiran penyusup. Darah segar memancar hangat, langsung tersapu oleh derasnya air hujan dingin yang mengguyur tubuh mereka.
+Bilah katana Jin meluncur keluar dari sarungnya dalam satu lecutan melengkung yang sangat cepat dan akurat. Tebasan pedang itu menggunakan momentum putaran tubuhnya, memotong tenggorokan dua penjaga terdekat secara bersamaan sebelum mereka sempat menyadari kehadiran penyusup. Darah segar memancar hangat, langsung tersapu oleh derasnya air hujan dingin yang mengguyur tubuh mereka.
 
 ***
 
@@ -5935,21 +5949,21 @@ Bilah katana Jin meluncur keluar dari sarungnya dalam satu lecutan melengkung ya
 
 *TAK!*
 
-Belum sempat prajurit ketiga menyelesaikan teriakannya, tangan kanan Ryu Jin menjentikkan sebuah baut baja tebal menggunakan kekuatan otot jarinya yang terlatih. Baut baja itu melesat cepat and menancap tepat di antara kedua mata prajurit tersebut, menembus tulang tengkorak and merubuhkannya seketika tanpa suara.
+Belum sempat prajurit ketiga menyelesaikan teriakannya, tangan kanan Ryu Jin menjentikkan sebuah baut baja tebal menggunakan kekuatan otot jarinya yang terlatih. Baut baja itu melesat cepat dan menancap tepat di antara kedua mata prajurit tersebut, menembus tulang tengkorak dan merubuhkannya seketika tanpa suara.
 
-Seorang kapten kartel di dekat pos mortar kanan mencoba menarik pelatuk senjatanya ke arah Jin. Namun dengan kelenturan refleks yang luar biasa, Jin memutar tubuhnya menyamping, membiarkan rentetan peluru melesat melewati mantel hitamnya. 
+Seorang kapten kartel di dekat pos mortar kanan mencoba menarik pelatuk senjatanya ke arah Jin. Namun dengan kelenturan refleks yang luar biasa, Jin memutar tubuhnya menyamping, membiarkan rentetan peluru melesat melewati mantel hitamnya.
 
-Dalam pecahan detik yang sama, Jin melangkah maju, memangkas jarak pertarungan menjadi jarak dekat. Tangan kirinya menghantam titik saraf vital di bawah rahang sang kapten dengan totokan telapak tangan terbuka, menghancurkan keseimbangan and melumpuhkan saraf motoriknya secara instan. Bersamaan dengan tubuh sang kapten yang limbung, bilah katana Jin menebas urat nadi leher korban dalam satu gerakan memutar yang dingin.
+Dalam pecahan detik yang sama, Jin melangkah maju, memangkas jarak pertarungan menjadi jarak dekat. Tangan kirinya menghantam titik saraf vital di bawah rahang sang kapten dengan totokan telapak tangan terbuka, menghancurkan keseimbangan dan melumpuhkan saraf motoriknya secara instan. Bersamaan dengan tubuh sang kapten yang limbung, bilah katana Jin menebas urat nadi leher korban dalam satu gerakan memutar yang dingin.
 
 *KRAK!*
 
-Di sisi kiri, Han Shin-woo bergerak bagaikan bayangan gila di antara batang-batang bambu. Karambit gandanya menyayat udara dalam pola melingkar yang mematikan. Ia memotong pergelangan tangan prajurit yang mencoba membidik Min-ho, lalu berputar and menusukkan karambit kirinya menembus ulu hati musuh lainnya. 
+Di sisi kiri, Han Shin-woo bergerak bagaikan bayangan gila di antara batang-batang bambu. Karambit gandanya menyayat udara dalam pola melingkar yang mematikan. Ia memotong pergelangan tangan prajurit yang mencoba membidik Min-ho, lalu berputar dan menusukkan karambit kirinya menembus ulu hati musuh lainnya.
 
 Min-ho bergerak aktif melindungi punggung Shin-woo. Ia menembakkan pelontar gas air mata portabel dari tangannya ke arah kelompok musuh yang mencoba berkumpul, lalu melumpuhkan kapten barisan belakang menggunakan sengatan listrik tegangan tinggi dari ponsel taktisnya yang telah dimodifikasi.
 
 Hanya dalam waktu tiga menit.
 
-Seluruh unit artileri Kartel Black Ant di puncak bukit utara telah dibantai habis. Lima belas mayat kombatan kartel tergeletak kaku bersimbah darah di atas tanah lumpur yang merah, menyisakan keheningan malam yang hanya diisi oleh desau angin and derasnya hujan badai.
+Seluruh unit artileri Kartel Black Ant di puncak bukit utara telah dibantai habis. Lima belas mayat kombatan kartel tergeletak kaku bersimbah darah di atas tanah lumpur yang merah, menyisakan keheningan malam yang hanya diisi oleh desau angin dan derasnya hujan badai.
 
 Ryu Jin berdiri di samping meriam mortar yang kini telah berhenti memuntahkan peluru. Ia menyapu darah musuh pada bilah katananya menggunakan sapuan dua jari yang tenang, lalu menyarungkan kembali pedang tersebut dengan bunyi klik yang senyap.
 
@@ -5965,7 +5979,7 @@ Detik berikutnya, dua ledakan keras menghancurkan meriam mortar tersebut, menand
 
 Bau anyir mesiu, asap hitam dari ban terbakar, dan aroma debu semen yang pecah memenuhi udara di sekitar tembok pertahanan depan benteng ORCA. Di bawah guyuran hujan lebat yang terus mengguyur lembah dengan kejam, puluhan kombatan lokal—para mantan warga Phra Khann yang dipersenjatai seadanya—berlindung di balik dinding beton setinggi tiga meter yang mulai retak-retak akibat tembakan peluru beruntun. Dari balik terowongan perlindungan bawah tanah benteng, suara tangisan ketakutan anak-anak dan wanita terdengar teredam, membakar semangat para bek untuk tidak membiarkan satu pun kombatan musuh menembus garis pertahanan ini.
 
-Dari luar benteng, ratusan kombatan gabungan Kartel Black Ant dan Kartel Red Lizard terus merangsek maju. Mereka berteriak liar di bawah kilatan cahaya tembakan senapan serbu, berlindung di balik kendaraan jip lapis baja dan tameng besi darurat. Aliran lumpur tebal akibat hujan badai mengalir deras menuruni lereng lembah, membuat pergerakan infanteri menjadi lambat, namun pihak kartel menggunakan kendaraan penggerak empat roda bersirine nyaring untuk menerobos rintangan alam tersebut. Mereka menembakkan peluncur granat buatan Soviet and senapan mesin ringan secara membabi buta ke arah dinding pertahanan benteng.
+Dari luar benteng, ratusan kombatan gabungan Kartel Black Ant dan Kartel Red Lizard terus merangsek maju. Mereka berteriak liar di bawah kilatan cahaya tembakan senapan serbu, berlindung di balik kendaraan jip lapis baja dan tameng besi darurat. Aliran lumpur tebal akibat hujan badai mengalir deras menuruni lereng lembah, membuat pergerakan infanteri menjadi lambat, namun pihak kartel menggunakan kendaraan penggerak empat roda bersirine nyaring untuk menerobos rintangan alam tersebut. Mereka menembakkan peluncur granat buatan Soviet dan senapan mesin ringan secara membabi buta ke arah dinding pertahanan benteng.
 
 *DUDUDUDUDUDU!*
 
@@ -5999,7 +6013,7 @@ Sementara itu, di puncak bukit luar yang gelap, Choi Min-ho bergerak aktif meman
 
 Min-ho merekam potongan suara dari salah satu komandan lapangan kartel yang sedang berteriak panik, lalu memprosesnya menggunakan program sintesis suara di ponselnya untuk menciptakan instruksi mundur yang terdengar sangat nyata. Sambil melakukan itu, matanya memindai pergerakan arus data sinyal komunikasi. Ia mendeteksi adanya pancaran gelombang radio bertenaga tinggi dari arah bukit timur laut.
 
-"Jin, aku menemukan koordinat tenda komando utama mereka," tambah Min-ho cepat. "Tawan dan Somchai berada di puncak bukit timur laut. Sinyal radio mereka dipancarkan dari sana untuk mengendalikan ratusan prajurit di bawah."
+"Jin, aku menemukan koordinat tenda komando utama mereka," tambah Min-ho cepat. "Krao dan Somchai berada di puncak bukit timur laut. Sinyal radio mereka dipancarkan dari sana untuk mengendalikan ratusan prajurit di bawah."
 
 "Mengerti, Min-ho. Kami sedang menuju ke bukit timur laut," balas suara dingin Ryu Jin di seberang interkom.
 
@@ -6017,9 +6031,9 @@ Tidak hanya mengacaukan frekuensi, Min-ho mengirimkan pesan suara palsu hasil ol
 
 Pesan suara palsu itu memicu kebingungan massal di barisan infanteri kartel. Koordinasi penyerangan mereka yang tadinya rapi mendadak kacau balau. Beberapa unit memilih mundur ke belakang semak-semak lebat, sementara unit lainnya tetap memaksakan diri maju karena tidak mendengar perintah mundur dengan jelas akibat dengingan suara rusak di telinga mereka. Mereka mulai berdebat dan menembaki bayangan mereka sendiri karena panik.
 
-"Mereka bingung!" teriak Dojin melihat barisan jip musuh yang mulai ragu-rahu di depan gerbang utama benteng. "Tembak mereka! Jangan biarkan mereka menata ulang barisan tempur!"
+"Mereka bingung!" teriak Dojin melihat barisan jip musuh yang mulai ragu-ragu di depan gerbang utama benteng. "Tembak mereka! Jangan biarkan mereka menata ulang barisan tempur!"
 
-Sisa peluru dari menara pengawas ORCA dimuntahkan secara terarah, menghujani barisan kartel yang sedang kacau di bawah gerbang. Namun, Dojin tahu ini hanya taktik penundaan waktu sementara. Begitu pimpinan tertinggi kartel, Tawan dan Somchai, menyadari sabotase komunikasi ini dan menggunakan pemancar cadangan, mereka akan meluncurkan serangan bunuh diri habis-habisan menggunakan seluruh sisa armada jip lapis baja mereka untuk meruntuhkan benteng ORCA.
+Sisa peluru dari menara pengawas ORCA dimuntahkan secara terarah, menghujani barisan kartel yang sedang kacau di bawah gerbang. Namun, Dojin tahu ini hanya taktik penundaan waktu sementara. Begitu pimpinan tertinggi kartel, Krao dan Somchai, menyadari sabotase komunikasi ini dan menggunakan pemancar cadangan, mereka akan meluncurkan serangan bunuh diri habis-habisan menggunakan seluruh sisa armada jip lapis baja mereka untuk meruntuhkan benteng ORCA.
 
 Dojin menyeka sisa keringat basah bercampur lumpur di dahinya, matanya menatap tajam ke arah kegelapan bukit utara yang masih diguyur hujan deras.
 
@@ -6033,9 +6047,9 @@ Di kejauhan, kilatan petir kembali menyambar di atas bukit, menandakan fajar mau
 
 Kabut tipis fajar mulai menyelimuti puncak bukit timur laut, berbaur dengan sisa air hujan semalam yang menguap dari dedaunan basah. Di dalam tenda militer besar berlampu kuning temaram, suasana terasa sangat tegang dan kacau. Lembaran peta kertas yang basah berserakan di atas meja lipat, bersandingan dengan beberapa ponsel radio lapangan yang terus-menerus mengeluarkan suara dengingan bising.
 
-**Tawan**, pimpinan tertinggi Kartel Black Ant, memukul meja lipat dengan kepalan tangannya yang kasar hingga retak. Wajahnya yang hitam terbakar matahari tampak memerah penuh amarah. Di sebelahnya, **Somchai**, pimpinan Kartel Red Lizard, mondar-mandir dengan napas memburu sambil mencengkeram gagang pedang parang miliknya yang berkilau dingin.
+**Krao**, pimpinan tertinggi Kartel Black Ant, memukul meja lipat dengan kepalan tangannya yang kasar hingga retak. Wajahnya yang hitam terbakar matahari tampak memerah penuh amarah. Di sebelahnya, **Somchai**, pimpinan Kartel Red Lizard, mondar-mandir dengan napas memburu sambil mencengkeram gagang pedang parang miliknya yang berkilau dingin.
 
-"Kenapa seluruh jaringan radio kita masih berdengung?!" teriak Tawan dengan suara parau kepada operator komunikasinya yang gemetar. "Dan kenapa regu infanteri di sektor barat malah mundur?! Siapa yang memberikan perintah itu?!"
+"Kenapa seluruh jaringan radio kita masih berdengung?!" teriak Krao dengan suara parau kepada operator komunikasinya yang gemetar. "Dan kenapa regu infanteri di sektor barat malah mundur?! Siapa yang memberikan perintah itu?!"
 
 "Kami tidak tahu, Bos!" jawab operator itu ketakutan. "Sinyal radio kita dirusak oleh frekuensi asing! Kami kehilangan kendali penuh atas barisan depan!"
 
@@ -6051,11 +6065,11 @@ Tiba-tiba, suara sayatan tajam yang sangat senyap terdengar dari luar tenda. Han
 
 Kain terpal pintu tenda robek menjadi dua bagian secara vertikal. Dari balik celah robekan tersebut, Ryu Jin melangkah masuk dengan sangat tenang. Ia mengenakan mantel taktis hitam yang basah oleh air hujan, tangan kanannya memegang bilah katana tradisional Jepang yang mengalirkan tetesan darah merah segar di ujung tajamnya. Di belakangnya, Han Shin-woo berdiri tegak sambil memutar karambit gandanya yang berlumuran darah, sementara Choi Min-ho bersiaga dengan ponsel taktis di tangan kirinya.
 
-Tawan dan Somchai membelalak lebar melihat kehadiran Trio Predator. Pendar cahaya fajar yang abu-abu dari luar robekan tenda menerangi mata biru es milik Ryu Jin yang memancarkan kekosongan emosi yang mengerikan.
+Krao dan Somchai membelalak lebar melihat kehadiran Trio Predator. Pendar cahaya fajar yang abu-abu dari luar robekan tenda menerangi mata biru es milik Ryu Jin yang memancarkan kekosongan emosi yang mengerikan.
 
-"Ryu Jin?!" desis Tawan ngeri, mundur satu langkah ke belakang mejanya. "Bagaimana bisa kau... kau berada di sini?! Kau seharusnya masih menyeberangi laut Korea!"
+"Ryu Jin?!" desis Krao ngeri, mundur satu langkah ke belakang mejanya. "Bagaimana bisa kau... kau berada di sini?! Kau seharusnya masih menyeberangi laut Korea!"
 
-"Dunia ini terlalu sempit untuk melarikan diri dari kalkulasiku, Tawan," jawab Ryu Jin datar, suaranya mengalir dingin bagaikan hembusan angin kuburan.
+"Dunia ini terlalu sempit untuk melarikan diri dari kalkulasiku, Krao," jawab Ryu Jin datar, suaranya mengalir dingin bagaikan hembusan angin kuburan.
 
 ***
 
@@ -6069,29 +6083,29 @@ Bilah katana Jin menepis parang Somchai dengan satu benturan melingkar yang meng
 
 *AAARRGGHH!*
 
-Somchai lolos berteriak kesakitan, lututnya ambruk menghantam lantai tenda. Jin tidak memberikan waktu sedetik pun bagi musuhnya untuk memulihkan diri. Tebasan vertikal katananya meluncur turun tanpa ampun, memenggal kepala pimpinan Kartel Red Lizard tersebut dalam satu lecutan bersih yang mematikan. Kepala Somchai menggelinding di atas meja peta, memercikkan darah segar ke wajah Tawan yang membeku ngeri.
+Somchai langsung berteriak kesakitan, lututnya ambruk menghantam lantai tenda. Jin tidak memberikan waktu sedetik pun bagi musuhnya untuk memulihkan diri. Tebasan vertikal katananya meluncur turun tanpa ampun, memenggal kepala pimpinan Kartel Red Lizard tersebut dalam satu lecutan bersih yang mematikan. Kepala Somchai menggelinding di atas meja peta, memercikkan darah segar ke wajah Krao yang membeku ngeri.
 
-Tawan menyadari ajal telah berada di depan matanya. Ia menarik senapan pistol otomatis di sabuknya, mencoba mengarahkannya ke dahi Jin. Namun, sebelum jarinya sempat menyentuh pelatuk, Jin menjentikkan dua baut baja tebal dari sela jemari tangan kirinya.
+Krao menyadari ajal telah berada di depan matanya. Ia menarik senapan pistol otomatis di sabuknya, mencoba mengarahkannya ke dahi Jin. Namun, sebelum jarinya sempat menyentuh pelatuk, Jin menjentikkan dua baut baja tebal dari sela jemari tangan kirinya.
 
 *SRET! TAK!*
 
-Dua baut baja itu menembus sendi pergelangan tangan kanan Tawan, memutus urat saraf dan membuat pistolnya terjatuh ke lantai. Jin melesat maju, menyarungkan kembali katananya dalam hitungan per sekian detik, lalu melayangkan pukulan telapak tangan terbuka tepat ke arah ulu hati Tawan. Hantaman keras itu menghancurkan sistem pernapasannya, membuat Tawan terlempar menghantam tiang besi penyangga tenda hingga patah.
+Dua baut baja itu menembus sendi pergelangan tangan kanan Krao, memutus urat saraf dan membuat pistolnya terjatuh ke lantai. Jin melesat maju, menyarungkan kembali katananya dalam hitungan per sekian detik, lalu melayangkan pukulan telapak tangan terbuka tepat ke arah ulu hati Krao. Hantaman keras itu menghancurkan sistem pernapasannya, membuat Krao terlempar menghantam tiang besi penyangga tenda hingga patah.
 
 ***
 
-Tawan terbaring lemah di atas tanah, memegangi dadanya yang retak dengan napas satu-satu yang sekarat. Ryu Jin berdiri di hadapannya, matanya menatap datar tanpa belas kasihan sedikit pun.
+Krao terbaring lemah di atas tanah, memegangi dadanya yang retak dengan napas satu-satu yang sekarat. Ryu Jin berdiri di hadapannya, matanya menatap datar tanpa belas kasihan sedikit pun.
 
 "Min-ho, sambungkan frekuensi radio ke seluruh pengeras suara barisan depan musuh," perintah Jin dingin.
 
 "Sambungan frekuensi aktif, Jin," jawab Min-ho, menekan tombol di ponsel taktisnya.
 
-Ryu Jin mengambil kepala Somchai yang terputus di atas meja, lalu menggunakan katananya untuk menusuk leher Tawan hingga napas terakhirnya habis. Ia membawa kepala kedua pimpinan kartel tersebut keluar dari tenda, berdiri di atas tebing bukit yang menghadap langsung ke arah barisan pengepung di bawah lembah.
+Ryu Jin mengambil kepala Somchai yang terputus di atas meja, lalu menggunakan katananya untuk menusuk leher Krao hingga napas terakhirnya habis. Ia membawa kepala kedua pimpinan kartel tersebut keluar dari tenda, berdiri di atas tebing bukit yang menghadap langsung ke arah barisan pengepung di bawah lembah.
 
 Fajar telah menyingsing penuh, memancarkan cahaya kekuningan di atas Black Valley.
 
-Ryu Jin melempar kepala Tawan dan Somchai keluar dari tebing bukit, membiarkannya menggelinding jatuh ke bawah tepat di tengah-tengah barisan kendaraan jip kartel yang sedang bersiap melakukan penyerbuan akhir. Bersamaan dengan itu, suara dingin Ryu Jin menggema keras melalui seluruh speaker radio lapangan musuh yang telah disabotase Min-ho:
+Ryu Jin melempar kepala Krao dan Somchai keluar dari tebing bukit, membiarkannya menggelinding jatuh ke bawah tepat di tengah-tengah barisan kendaraan jip kartel yang sedang bersiap melakukan penyerbuan akhir. Bersamaan dengan itu, suara dingin Ryu Jin menggema keras melalui seluruh speaker radio lapangan musuh yang telah disabotase Min-ho:
 
-*["Tawan dan Somchai sudah mati. Letakkan senjata kalian, atau hutan ini akan menjadi kuburan massal kalian berikutnya."]*
+*["Krao dan Somchai sudah mati. Letakkan senjata kalian, atau hutan ini akan menjadi kuburan massal kalian berikutnya."]*
 
 ***
 

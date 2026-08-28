@@ -2,11 +2,11 @@ Bab 7: Penyergapan di Balik Kabut
 
 Kamis, 27 November 2025 – Pukul 22:00 KST.
 
-Kemenangan mutlak Firma Hukum Aegis di meja hijau siang tadi memicu gelombang euforia di kalangan masyarakat luas. Headline berita nasional terus menyiarkan keputusan mengejutkan Pengadilan Distrik Pusat Seoul yang membatalkan vokal penolakan gugatan dan membekukan aset Pharma-Corp sebesar 50 miliar Won. 
+Kemenangan awal Firma Hukum Aegis di meja hijau siang tadi memicu gelombang harapan di kalangan warga. Tajuk berita nasional menyiarkan keputusan Pengadilan Distrik Pusat Seoul yang membatalkan penolakan sita sementara dan membekukan aset Pharma-Corp sampai lima puluh miliar won selama perkara diperiksa.
 
 Namun di balik kemegahan distrik finansial Yeouido, di dalam penthouse lantai 50 Utama Pharma-Corp Tower, suasana terasa sedingin es.
 
-Pecahan gelas kristal berserakan di atas karpet Persia mahal. 
+Pecahan gelas kristal berserakan di atas karpet Persia mahal.
 
 Chairman Kwak Jung-Hoon—Direktur Utama Korporasi Pharma-Corp yang berusia lima puluh lima tahun—berdiri di depan dinding kaca besar dengan napas memburu dan mata merah penuh amarah. Pria narsistik dan lalim yang selama puluhan tahun menyogok pejabat itu menatap bayangan dirinya di jendela dengan dendam kesumat yang membara.
 
@@ -16,7 +16,7 @@ Di belakangnya, seorang pria jangkung bermata satu dengan bekas luka jahitan mel
 
 "Hukum panggung terang mungkin telah memojokkan Anda, Chairman Kwak," suara pria bermata satu itu terdengar serak, dalam, dan dingin bagaikan belati karatan. "Tapi di dunia bawah tanah, uang Anda masih berlaku."
 
-Chairman Kwak berbalik, menyunggingkan senyuman kejam yang dipenuhi rasa frustrasi dan kejahatan mutlak. Uang ganti rugi 50 miliar Won yang harus dibayarkan pada para korban Incheon membuat otaknya gelap mata.
+Chairman Kwak berbalik, menyunggingkan senyuman kejam yang dipenuhi rasa frustrasi dan kebengisan. Uang ganti rugi 50 miliar won yang harus dibayarkan pada para korban Incheon membuat otaknya gelap mata.
 
 "Ratakan pemukiman Incheon malam ini!" perintah Chairman Kwak dingin tanpa rasa kemanusiaan sedikit pun. "Bakar seluruh fasilitas laboratorium independen korban, musnahkan sisa sampel air limbah itu sampai tak bersisa, dan habisi dua saksi utama mereka. Buat kematian mereka terlihat seperti kecelakaan kebakaran biasa! Jika asetku dibekukan, aku akan memastikan tidak ada seorang pun rakyat jelata itu yang menikmati sepeser pun uang ganti rugi!"
 
@@ -28,9 +28,9 @@ Pukul 22:45 KST.
 
 Di dalam van taktis Firma Aegis yang terparkir di dalam lorong gelap kawasan industri Incheon, layar monitor Lee Min-Jae mendadak berkedip merah terang memancarkan sinyal peringatan.
 
-"Bos! Sinyal terenkripsi Black Hounds terdeteksi!" seru Min-Jae seraya jemarinya menari lincah di atas keyboard laptop militernya. "Empat unit van hitam tanpa plat nomor baru saja melintasi jalan tol Incheon. Mereka membawa lima belas personel tentara bayaran bersenjata tajam dan bom molotov menuju laboratorium darurat warga."
+"Bos! Sinyal terenkripsi Black Hounds terdeteksi!" seru Min-Jae seraya jemarinya menari lincah di atas keyboard laptop militernya. "Empat unit van hitam tanpa pelat nomor baru saja melintasi jalan tol Incheon. Mereka membawa lima belas personel tentara bayaran bersenjata tajam dan bom molotov menuju laboratorium darurat warga."
 
-Han Chae-Eun yang duduk di samping Min-Jae langsung membuka peta digital dan sistem komunikasi darurat Aegis. Dengan kecerdasan dan ketanggapannya yang luar biasa, gadis berusia dua puluh dua tahun itu mengatur alur pengamanan warga secara cepat.
+Han Chae-Eun yang duduk di samping Min-Jae segera membuka peta digital dan jalur komunikasi darurat Aegis. Gadis berusia dua puluh dua tahun itu menghubungi koordinator warga dengan identitas samaran, menyusun titik evakuasi, dan memastikan kendaraan sipil tidak memasuki zona bahaya.
 
 "Aku sudah mengalihkan warga dan ibu-ibu korban ke tempat perlindungan terdekat secara anonim," ujar Chae-Eun tegas seraya membetulkan headset-nya. "Semua warga sudah dievakuasi aman. Tapi sampel air limbah pembanding sisa yang krusial masih tersimpan di dalam ruang pendingin laboratorium."
 
@@ -40,9 +40,9 @@ Ia memasukkan bolpoin tebal mewahnya ke saku dalam mantel, lalu meraih sebuah in
 
 "Orang-orang seperti Kwak Jung-Hoon selalu berpikir bahwa uang dan kekuasaan bisa membeli segalanya... termasuk nyawa manusia," suara Jae-Shin terdengar sangat dingin, mengalun lembut namun sanggup membekukan udara di dalam van.
 
-Jae-Shin melirik Min-Jae dan Chae-Eun. "Min-Jae, putuskan seluruh jaringan komunikasi dan lumpuhkan lampu penerangan jalan di radius satu kilometer laboratorium Incheon. Chae-Eun, pastikan tidak ada kamera lalu lintas yang merekam pergerakanku."
+Jae-Shin melirik Min-Jae dan Chae-Eun. "Min-Jae, ganggu radio mereka dan padamkan lampu pada dua ruas jalan di sekitar laboratorium. Chae-Eun, arahkan aku melewati titik buta kamera lalu lintas. Jangan sentuh jaringan rumah sakit atau layanan darurat."
 
-Chae-Eun menatap Jae-Shin dengan sorot mata aktif, namun kali ini ada keterkejutan luar biasa yang membelalakkan pupil matanya. Gadis itu terkesiap menahan napas. Sejak pertama kali bergabung dengan Aegis, ia hanya mengenal sosok Han Jae-Shin sebagai bos konyol, eksentrik, yang gemar mengoceh tidak jelas dan selalu melempar lelucon receh. 
+Chae-Eun menatap Jae-Shin dengan sorot mata aktif, namun kali ini ada keterkejutan luar biasa yang membelalakkan pupil matanya. Gadis itu terkesiap menahan napas. Sejak pertama kali bergabung dengan Aegis, ia hanya mengenal sosok Han Jae-Shin sebagai bos konyol, eksentrik, yang gemar mengoceh tidak jelas dan selalu melempar lelucon receh.
 
 Namun pria bermantel hitam pekat di hadapannya saat ini—dengan aura pembunuh berdarah dingin, ketepatan analisis taktis militer yang mematikan, dan tatapan mata yang sanggup membekukan udara—benar-benar sosok yang berbeda seratus delapan puluh derajat. Baru kali ini Chae-Eun menyadari kengerian sejati dari tujuan gelap Firma Hukum Aegis.
 
@@ -50,7 +50,7 @@ Namun pria bermantel hitam pekat di hadapannya saat ini—dengan aura pembunuh b
 
 Jae-Shin menyunggingkan senyuman tipis yang mengerikan—sebuah senyuman *Legal Assassin* yang menandai tibanya waktu vonis malam bagi para anjing peliharaan.
 
-*Klek.*
+*Gesrek!*
 
 Pintu samping van terbuka, dan tubuh Jae-Shin melompat keluar, melebur sempurna dalam kegelapan malam.
 
@@ -70,11 +70,11 @@ Namun, belum sempat korek api dinyalakan...
 
 *TRANG! TRANG! TRANG!*
 
-Bukan pukulan atau tendangan, melainkan belasan jarum suntik mikro melesat dari kegelapan, menancap presisi ke leher dan lengan beberapa anggota Black Hounds terdepan. 
+Bukan pukulan atau tendangan, melainkan belasan jarum suntik mikro melesat dari kegelapan, menancap presisi ke leher dan lengan beberapa anggota Black Hounds terdepan.
 
 "Argh! Apa ini?!" jerit salah satu dari mereka seraya mencabut jarum kecil itu.
 
-Cairan bening tersebut adalah racun sintetis khusus buatan duo ahli kimia Aegis, Seung-Gyu dan Sung-Hoon. Racun itu tidak membunuh secara instan, melainkan akan memicu gejala sesak napas akut, demam tinggi, dan paru-paru terbakar layaknya infeksi virus COVID-19 parah, yang efeknya baru akan meremukkan tubuh mereka tiga puluh menit setelah disuntikkan.
+Cairan bening itu adalah agen pelumpuh fiktif S-4 buatan Seung-Gyu dan Sung-Hoon. Efeknya tidak langsung muncul: koordinasi otot menurun, dada terasa berat, dan suhu tubuh meningkat setelah sekitar tiga puluh menit. Dosis pada setiap jarum dibatasi agar tidak mematikan, tetapi korban tetap memerlukan pertolongan medis.
 
 Setelah memastikan barisan depan panik, barulah sang *Legal Assassin* beraksi.
 
@@ -86,7 +86,7 @@ Sebuah bayangan hitam bergerak secepat kilat dari balik kegelapan malam. Sebelum
 
 Jae-Shin sama sekali tidak membuang kata untuk menjawab. Di bawah bayang-bayang kegelapan malam, pertarungan sengit jarak dekat pecah dalam sekejap mata. Lee Dong-Ma melancarkan kombinasi tebasan pisau dan rentetan pukulan mematikan dengan kecepatan tinggi, namun setiap serangannya berhasil ditangkis dan dialihkan dengan presisi sempurna oleh lengan Jae-Shin.
 
-Melihat celah sempit di pertahanan lawan, Jae-Shin meluncurkan serangan balasan. *DUK! BRAM!* Dua pukulan fatal berdaya hancur tinggi melesak telak—satu menghantam ulu hati dan satu lagi menghantam rahang keras Lee Dong-Ma. 
+Melihat celah sempit di pertahanan lawan, Jae-Shin meluncurkan serangan balasan. *DUK! BRAM!* Dua pukulan fatal berdaya hancur tinggi melesak telak—satu menghantam ulu hati dan satu lagi menghantam rahang keras Lee Dong-Ma.
 
 Hantaman dahsyat itu membuat Lee Dong-Ma terdorong mundur beberapa langkah. Sebagai petarung veteran yang bertubuh kokoh dan terlatih, ia masih mampu bertahan berdiri tegak, meski sedikit darah segar merembes di sudut bibirnya. Matanya menatap bayangan di depannya dengan napas memburu dan rasa terkejut yang belum pernah ia rasakan sebelumnya.
 
@@ -100,10 +100,12 @@ Tanpa membuang waktu, Jae-Shin segera berbalik, melompat dan melebur kembali ke 
 
 Raungan sirene polisi mulai terdengar dari ujung jalan. Anggota Black Hounds yang terluka dan kepanikan segera memapah rekan-rekan mereka masuk ke dalam van. Lee Dong-Ma menyeka darah di sudut bibirnya dengan punggung tangan seraya menatap ke arah kegelapan tempat Jae-Shin menghilang.
 
-*Siapa orang itu sebenarnya? Tidak ada orang di Seoul dengan teknik bertarung semematikan ini...* batin Lee Dong-Ma tajam, sebelum akhirnya melangkah masuk ke dalam van dan memerintahkan pasukannya kabur dari lokasi sebelum polisi tiba. 
+*Siapa orang itu sebenarnya? Tidak ada orang di Seoul dengan teknik bertarung semematikan ini...* batin Lee Dong-Ma tajam, sebelum akhirnya melangkah masuk ke dalam van dan memerintahkan pasukannya kabur dari lokasi sebelum polisi tiba.
 
 Tiga menit kemudian, lima mobil patroli polisi tiba di lokasi dengan lampu strobo menyala terang menembus kegelapan Incheon. Para petugas turun dengan pistol terhunus, namun mereka dibuat bingung bukan main.
 
-Tidak ada satu pun orang yang tersisa di sana. Di tengah padamnya lampu jalanan, polisi hanya mendapati area laboratorium darurat yang basah oleh ceceran bensin menyengat, serpihan kaca berserakan, serta bercak-bercak darah segar di atas aspal. 
+Tidak ada satu pun orang yang tersisa di sana. Di tengah padamnya lampu jalanan, polisi hanya mendapati area laboratorium darurat yang basah oleh ceceran bensin menyengat, serpihan kaca berserakan, serta bercak-bercak darah segar di atas aspal.
 
 "Apa yang sebenarnya terjadi di sini?" gumam seorang kapten polisi seraya menyorotkan senternya dengan kening berkerut dalam, benar-benar tidak habis pikir peristiwa mengerikan macam apa yang baru saja berlangsung di tempat sepi itu beberapa menit lalu.
+
+---

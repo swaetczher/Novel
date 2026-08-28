@@ -76,7 +76,7 @@ Hantaman bola presisi itu membuat zombie kedua limbung dan hilang keseimbangan d
 
 Zombie ketiga—koki paling besar berbadan tegap—menerjang lurus ke arah Renjiro dengan raungan buas dari samping rak.
 
-Renjiro menyipitkan matanya. Dengan kelincahan fisik dan reflek bertarungnya yang tajam, Renjiro melangkah miring menghindari cakar berbulu lebat musuh. Ia mengayunkan stik golf baja di tangan kanannya menepis lengan musuh, lalu stik golf di tangan kirinya bergerak kilat menghantam tempurung lutut lawan.
+Renjiro menyipitkan matanya. Dengan kelincahan fisik dan refleks bertarungnya yang tajam, Renjiro melangkah miring menghindari cakar berbulu lebat musuh. Ia mengayunkan stik golf baja di tangan kanannya menepis lengan musuh, lalu stik golf di tangan kirinya bergerak kilat menghantam tempurung lutut lawan.
 
 *KTAK!*
 

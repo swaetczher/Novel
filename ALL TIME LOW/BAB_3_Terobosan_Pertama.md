@@ -16,7 +16,7 @@ Dengan hati-hati, Renjiro mendorong pintu besi atap yang berdecit kaku. Ketigany
 
 ***
 
-Arsitektur gedung SMA Hanazono memiliki desain modern dengan konsep *mezzanine* di bagian tengahnya. Setiap lantai tidak memiliki lantai tertutup di area tengah, melainkan berupa koridor melingkar yang langsung menghadap ke atrium terbuka jauh di lantai dasar. Pembatas antara koridor melingkar tersebut dengan jurang atrium tengah hanyalah pagar kaca tebal berbingkai baja setinggi dada orang dewasa. Dari koridor lantai tiga, siapapun bisa melayangkan pandangan langsung ke lantai dasar di bawah sana.
+Arsitektur gedung SMA Hanazono memiliki desain modern dengan konsep *mezzanine* di bagian tengahnya. Setiap lantai tidak memiliki lantai tertutup di area tengah, melainkan berupa koridor melingkar yang langsung menghadap ke atrium terbuka jauh di lantai dasar. Pembatas antara koridor melingkar tersebut dengan jurang atrium tengah hanyalah pagar kaca tebal berbingkai baja setinggi dada orang dewasa. Dari koridor lantai tiga, siapa pun bisa melayangkan pandangan langsung ke lantai dasar di bawah sana.
 
 Suasana lantai tiga terasa luar biasa gelap, sepi, dan asing. Cahaya matahari pagi hanya masuk remang-remang menembus kaca-kaca jendela koridor yang berdebu. Bau amis darah membusuk bercampur aroma obat pembersih lantai yang kadaluarsa menyengat kental di udara, membuat dada Daiki sesak.
 

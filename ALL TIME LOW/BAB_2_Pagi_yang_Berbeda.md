@@ -48,11 +48,13 @@ Mereka bertiga berkumpul merapat, membaca kata demi kata dari rincian berita ter
 > 
 > *Menurut dokumen kesaksian sementara dari kru yang selamat, seluruh tim ekspedisi di kapal utama diserang oleh spesimen organisme tak dikenal saat mendarat di area pedalaman pulau. Organisme tersebut memicu mutasi biologi ekstrem: ukuran tubuh penderita membesar secara signifikan melebihi proporsi aslinya, serta memicu pertumbuhan bulu-bulu lebat sepanjang 2 hingga 3 sentimeter di sepanjang lengan, kaki, dan area wajah.*
 > 
-> *Kru kedua yang selamat dan dievakuasi di Pelabuhan Yokohama kemarin sore mengonfirmasi bahwa patogen ini menular melalui gigitan dan cairan tubuh. Korban infeksi akan mengalami pembusukan jaringan kilat sesuai titik luka sebelum berubah, hilangnya kesadaran otak, serta peningkatan agresivitas fisik secara ekstrem. Pihak otoritas mengimbau seluruh masyarakat untuk tidak mendatangi area Pelabuhan Yokohama dan distrik sekitarnya...*
+> *Kru kedua yang selamat dan dievakuasi di Pelabuhan Yokohama kemarin sore mengonfirmasi bahwa patogen ini menular melalui gigitan dan cairan tubuh yang masuk melalui luka terbuka. Korban infeksi akan mengalami pembusukan jaringan sesuai titik luka sebelum berubah, hilangnya kesadaran, serta peningkatan agresivitas fisik secara ekstrem.*
+>
+> *Penyelidikan sementara juga menemukan bahwa muatan, sampel medis, dan beberapa petugas penyelamat dari kapal tersebut telah dipindahkan melalui sejumlah depot sebelum karantina diberlakukan. Laporan demam dan serangan serupa tercatat di gudang kargo, rumah sakit, serta jalur distribusi di beberapa prefektur sejak dua hari terakhir. Pemerintah menduga klaster tersembunyi telah terbentuk sebelum insiden Yokohama disiarkan. Masyarakat diminta menjauhi pelabuhan, fasilitas medis yang ditutup, dan siapa pun yang menunjukkan gejala...*
 
 "Jadi... adegan orang saling gigit di siaran kemarin sore itu bukan rekayasa media?" gumam Daiki serak. Tangannya yang memegang pemantik api zippo kosong gemetar tanpa sadar. "Pria di dermaga itu benar-benar berubah jadi monster..."
 
-Renjiro berdiri mematung di tempatnya. Otaknya berusaha mencerna kenyataan bahwa firasat buruk dan ketakutan orang-orang kemarin ternyata bukan sekadar kehebohan murahan. Kota tempat mereka tumbuh besar kini sedang diambang kehancuran total.
+Renjiro berdiri mematung di tempatnya. Otaknya berusaha mencerna kenyataan bahwa firasat buruk dan ketakutan orang-orang kemarin ternyata bukan sekadar kehebohan murahan. Kota tempat mereka tumbuh besar kini sedang di ambang kehancuran total. Penyebaran itu bukan terjadi dalam satu malam. Selama dua hari, orang-orang yang belum bergejala rupanya telah membawa patogen melewati jalan raya, rumah sakit, dan pusat distribusi tanpa disadari siapa pun.
 
 Sebelum salah satu dari mereka sempat bersuara lagi, ketiga ponsel yang dipegang Kazuki, Daiki, dan Renjiro mendadak bergetar dan meraung serempak. 
 

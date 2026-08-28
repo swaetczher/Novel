@@ -58,7 +58,7 @@ Tubuh monster itu mendarat telak di kap depan jip. Kaca depan antipeluru jip mil
 
 Moncong monster itu berada hanya beberapa senti dari wajah Renjiro dan Kazuki di balik kaca. Kulitnya yang kelabu pucat tampak basah oleh lendir berbau amis. Kedua bola matanya berwarna kuning menyala tanpa pupil, memantulkan cahaya sorot lampu depan jip.
 
-Kazuki reflek mengepalkan tinjunya yang dilapisi buku jari berduri baja padat, bersiap menghantam kaca depan dari dalam.
+Kazuki secara refleks mengepalkan tinjunya yang dilapisi buku jari berduri baja padat, bersiap menghantam kaca depan dari dalam.
 
 "Jangan pukul kacanya dari dalam, bodoh!" bentak Renjiro cepat, tangan kirinya menahan lengan Kazuki. "Kaca itu sudah retak! Satu benturan lagi dan monster itu akan masuk ke pangkuanmu!"
 

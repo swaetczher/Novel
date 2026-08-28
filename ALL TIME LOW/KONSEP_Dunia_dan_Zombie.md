@@ -21,12 +21,24 @@ Wabah infeksi ini dipicu oleh organisme spesimen misterius dari Pulau Socotra ya
    * **Aturan Penularan Cairan:** Cairan/darah hitam infeksius HANYA berbahaya jika meresap masuk ke dalam tubuh melalui luka terbuka, gigitan, atau aliran darah. Jika cairan hanya sekadar menempel pada permukaan kulit utuh yang tidak terluka, tidak akan memicu infeksi.
 
 4. **Mutasi Konsumsi Hewan (Anomali Evolusi/Kimera):**
-   * Ketika zombie mengonsumsi/memakan daging hewan atau binatang (misalnya ikan, mamalia, dll.), sel-sel infeksius di dalam tubuhnya merespons materi genetik/organik hewan tersebut.
-   * Efeknya: Tubuh zombie akan mengalami **mutasi/evolusi perlahan** menjadi wujud hibrida manusia-hewan yang dimakannya, dengan pertumbuhan ukuran massa tubuh yang jauh lebih besar (misalnya berwujud hibrida ikan berukuran sebesar beruang).
+   * Ketika zombie berulang kali mengonsumsi daging hewan dalam jumlah besar, sel-sel infeksius di dalam tubuhnya merespons materi organik hewan tersebut.
+   * Perubahan tidak terjadi hanya karena satu gigitan. Fase awal berlangsung selama beberapa jam dan ditandai demam jaringan, perubahan kulit, serta pembengkakan tulang. Setelah melewati ambang tertentu, fase akhir dapat berlangsung sangat cepat.
+   * Efek akhirnya adalah wujud hibrida manusia-hewan dengan massa tubuh jauh lebih besar, misalnya hibrida ikan seukuran beruang.
+   * Seri eksperimen Gen-Tech dapat mengalami perubahan jauh lebih cepat karena telah diberi katalis mutasi buatan.
 
 5. **Perilaku & Kemampuan Fisik:**
    * **Agresivitas Ekstrem:** Hilangnya kesadaran rasional dan dominasi naluri memangsa yang buas.
    * **Kecepatan Abnormal:** Meskipun saat tidak melihat mangsa gerakannya tampak lambat dan menyeret kaki, begitu mengendus atau melihat manusia hidup, mereka mampu berlari dan melompat dengan kecepatan dan tenaga di luar batas manusia normal.
+
+6. **Klasifikasi Inang Terinfeksi:**
+   * **Terinfeksi Umum:** Manusia yang berubah setelah tergigit atau menerima cairan infeksius melalui luka terbuka.
+   * **Kimera Alami:** Terinfeksi yang berubah setelah mengonsumsi jaringan hewan berulang kali dalam jumlah besar.
+   * **Varian Lingkungan:** Terinfeksi yang beradaptasi terhadap lingkungan tertentu, seperti varian buta di terowongan yang mengandalkan pendengaran.
+   * **Seri-GT:** Subjek hasil rekayasa Gen-Tech. Kalung pengendali dan kode seperti GT-04 atau GT-ALPHA membedakannya dari mutasi alami.
+
+7. **Kronologi Penyebaran Awal:**
+   * Kapal Oceanic Nexus Logistics hilang kontak selama dua minggu. Sebelum dua awaknya muncul di Yokohama, beberapa kontainer, sampel medis, dan personel penyelamat telah dipindahkan melalui jalur logistik yang berbeda.
+   * Karena masa inkubasi berbeda pada setiap korban, klaster tersembunyi telah muncul di gudang pelabuhan, fasilitas medis, dan depot kargo sebelum siaran langsung di Yokohama. Hal ini menjelaskan penyebaran wabah yang tampak serentak.
 
 ---
 

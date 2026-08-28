@@ -6,7 +6,7 @@ PRANGGG!
 
 Suara terpal tebal yang robek parah bergema keras di dalam kegelapan. Tubuh Kazuki menghantam tumpukan karung goni berisi tumpukan kertas bekas di dalam gerbong kereta barang terbuka, disusul oleh pendaratan Daiki dan Paman Kagemitsu yang tidak kalah berantakan. Beberapa detik kemudian, Renjiro jatuh dengan posisi berguling di samping mereka, menabrak dinding besi gerbong dengan bahu kanannya.
 
-Diatas mereka, bola api raksasa hasil ledakan jip militer masih berkobar di ujung jalan layang tol, mengirimkan jilatan api merah yang menerangi terowongan rel bawah tanah yang pengap ini sesaat, sebelum perlahan meredup kembali.
+Di atas mereka, bola api hasil ledakan jip militer masih berkobar di ujung jalan layang, mengirimkan cahaya merah ke jalur servis semi-bawah tanah sebelum perlahan meredup.
 
 Hening. Hanya ada suara napas mereka yang tersengal-sengal dan detak jantung yang berdegup kencang di telinga masing-masing.
 
@@ -18,13 +18,15 @@ Hening. Hanya ada suara napas mereka yang tersengal-sengal dan detak jantung yan
 
 "Terima kasih atas kepedulian medisnya yang sangat menyentuh, Daiki," gerutu Kazuki sembari bangkit berdiri dengan susah payah.
 
-Paman Kagemitsu menghela napas panjang, memeriksa kondisi tombak yari miliknya yang untungnya tidak patah. "Kita beruntung gerbong kereta barang ini terparkir tepat di bawah celah tol yang runtuh. Jika kita mendarat langsung di atas rel beton, kita tidak akan sempat mengeluh."
+Paman Kagemitsu menghela napas panjang, lalu memeriksa kondisi mereka satu per satu. Pergelangan kaki Daiki terkilir ringan, bahu Renjiro memar, dan rusuk Kazuki sakit saat digunakan menarik napas. Tidak ada tulang yang tampak bergeser, tetapi mereka tidak lagi dapat berlari atau bertarung seolah baru turun dari tempat tidur.
+
+"Kita beruntung gerbong ini penuh limbah kertas," ujar Kagemitsu. "Kalau mendarat langsung di rel beton, kita tidak akan sempat mengeluh."
 
 Mereka berempat merangkak turun dari gerbong kereta barang yang terbengkalai. Udara di bawah tanah ini terasa sangat lembap dan dingin, berbau busuk karat besi basah bercampur aroma jamur liar yang tumbuh di sela bantalan rel. Kegelapan di sini sangat pekat, hampir absolut. Daiki menyalakan senter kecilnya kembali, menyorotkan cahayanya ke terowongan rel yang membentang tanpa ujung di depan mereka.
 
 "Ke mana jalan ini mengarah?" tanya Kazuki.
 
-"Ini jalur kereta bawah tanah Shinjuku," jawab Paman Kagemitsu, matanya memindai dinding beton terowongan yang retak-retak. "Jika kita menyusuri rel ini ke arah barat, kita akan sampai di stasiun transit darurat. Dari sana, ada tangga akses keluar yang dekat dengan pinggiran Tokyo Barat."
+"Ini bukan jalur penumpang," jawab Paman Kagemitsu, matanya memindai dinding beton. "Kemungkinan jalur logistik lama yang terhubung ke gudang-gudang di barat. Kalau arahnya benar, pasti ada akses servis menuju permukaan."
 
 "Tetap waspada. Gunakan senter seperlunya saja," instruksi Renjiro. Ia menarik satu katananya dari sarung, bersiap menghadapi ancaman apa pun yang bersembunyi di balik kegelapan.
 
@@ -84,9 +86,13 @@ Zombie ketiga yang berukuran paling besar menerjang Kazuki. Kazuki mengangkat ta
 
 DHOOM!
 
-Benturan keras membuat Kazuki terdorong mundur hingga punggungnya menghantam pintu besi Gen-Tech di belakangnya. Tanpa sengaja, berat tubuh Kazuki menekan tuas darurat pintu besi yang ternyata tidak terkunci rapat dari dalam. 
+Benturan keras membuat Kazuki terdorong mundur hingga punggungnya menghantam pintu besi Gen-Tech. Panel akses berkedip merah dan mengeluarkan peringatan bahwa daya cadangan hampir habis. Daiki melihat kabel suplai darurat menjulur dari kotak panel ke rel listrik servis.
 
-Pintu besi tebal itu bergeser terbuka dengan suara desis hidrolik yang berat.
+"Potong kabel biru setelah lampunya berubah hijau!" seru Kagemitsu. Ia mengenali mekanisme pelepas darurat pada pintu industri.
+
+Daiki menghantam penutup panel dengan nunchaku. Renjiro menahan zombie, sementara Kazuki menarik tuas mekanis yang baru terbuka di balik panel. Ketika Daiki memutus kabel biru, sistem keamanan kehilangan daya dan berpindah ke mode evakuasi.
+
+Pintu besi tebal itu bergeser terbuka dengan desis hidrolik yang berat. Mereka tidak menemukannya karena kebetulan; pintu tersebut memang dirancang terbuka saat suplai utama gagal dan pelepas manual diaktifkan.
 
 Kazuki jatuh terlentang ke dalam ruangan di balik pintu, sementara zombie pucat di atasnya bersiap mencakar wajahnya. Renjiro melompat masuk ke dalam ruangan, mengayunkan katananya ke bawah dan menebas kepala zombie itu hingga terpisah dari lehernya.
 

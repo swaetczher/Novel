@@ -74,7 +74,7 @@ Namun, jumlah monster terlalu banyak. Dari kegelapan jalan tol, lebih banyak lag
 
 Mereka terpaksa mundur perlahan mendekati ujung jalan layang tol di belakang jip mereka. Dan saat Renjiro melirik ke belakang, jantungnya berdegup kencang.
 
-Jalan layang tol di belakang mereka telah runtuh total akibat ledakan truk tangki sebelumnya. Menyisakan jurang gelap sedalam lima belas meter yang di bawahnya terdapat rel kereta bawah tanah yang terbengkalai. Jalan buntu.
+Jalan layang di belakang mereka telah runtuh akibat ledakan truk tangki sebelumnya. Di bawah celah selebar belasan meter itu terdapat jalur servis logistik yang dibangun lebih rendah, sekitar enam meter dari tepi beton. Sebuah gerbong barang terbuka berhenti tepat di bawahnya, penuh terpal dan karung limbah kertas. Tetap berbahaya, tetapi bukan lompatan yang mustahil. Jalan buntu.
 
 "Bagus sekali," gerutu Kazuki seraya menyeka darah hitam di tameng wajannya. "Sekarang kita terjebak di antara jurang maut dan komplotan anjing Gen-Tech."
 
@@ -104,4 +104,8 @@ Renjiro menatap Kazuki, Daiki, dan Paman Kagemitsu yang berdiri hanya dua meter 
 
 "LOMPAT!" teriak Renjiro lantang.
 
-Tanpa sempat berpikir lagi, mereka berempat melempar tubuh mereka melewati tepi jalan layang tol yang runtuh, meluncur bebas ke dalam kegelapan jurang yang pekat tepat saat ledakan dahsyat di belakang mereka memicu bola api raksasa yang menerangi langit malam Tokyo.
+Kazuki lebih dahulu menjatuhkan wajan ke tumpukan terpal sebagai penanda. Daiki dan Kagemitsu melompat menyusul, mengincar karung limbah kertas di gerbong. Renjiro menendang GT-04 menjauh dari tepi, lalu ikut menjatuhkan diri.
+
+Mereka menghantam terpal dan karung hanya sepersekian detik sebelum ledakan di atas memicu bola api raksasa. Ketinggian enam meter tetap meremukkan napas dan memukul sendi mereka, tetapi muatan lunak dalam gerbong menyerap sebagian besar benturan.
+
+Tak seorang pun langsung mampu berdiri. Namun suara logam runtuh di atas memaksa mereka mengabaikan rasa sakit dan merangkak menjauh.

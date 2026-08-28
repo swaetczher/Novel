@@ -1,0 +1,144 @@
+# Bab 18: Laboratorium yang Tidak Ada di Peta
+
+Gerbong kargo melaju selama dua puluh menit di bawah tanah.
+
+Go Han-Seo tetap berbaring di atas kontainer pendingin. Dari balik logam, ia mendengar denyut teratur yang menyerupai jantung manusia, tetapi terlalu lambat untuk seseorang yang sadar. Setiap enam detik, pompa mekanis mengalirkan cairan ke dalam ruang penyimpanan.
+
+Ia ingin membuka kontainer itu, tetapi segel elektroniknya terhubung dengan alarm terowongan. Membongkarnya sekarang hanya akan memberitahu Viper Biotics bahwa ada penyusup dalam pengiriman.
+
+Gerbong akhirnya mengurangi kecepatan.
+
+Pintu baja terbuka, memperlihatkan ruang bongkar muat yang luas dan steril. Para pekerja mengenakan pakaian pengolah limbah medis tanpa lambang militer. Di dinding terdapat nama perusahaan umum: **PUSAT PENGELOLAAN TERMAL NARA**.
+
+Namun, Persepsi Elektromagnetik Han-Seo menangkap puluhan komunikasi terenkripsi di balik dinding. Ada jaringan senjata otomatis, ruang tahanan, dan server berlapis yang tidak mungkin dimiliki fasilitas pengolahan limbah biasa.
+
+Inilah Fasilitas N-0.
+
+Dari rangka langit-langit, Han-Seo mengamati pola kerja fasilitas. Inti Carnage dipindai, diberi nomor, kemudian dipisahkan menurut tingkat evolusinya. Inti Feral masuk ke ruang produksi serum. Inti Chimera dan Prime dikirim menuju laboratorium militer. Sebuah wadah khusus bertanda Tyrant ditempatkan pada lift yang hanya dapat digunakan oleh personel Asosiasi berpangkat tinggi.
+
+Ia mengenali dua seragam di antara para pekerja. Keduanya berasal dari divisi audit Asosiasi Hunter—orang-orang yang seharusnya memastikan tidak ada sampel keluar dari Ground Zero. Kehadiran mereka membuktikan bahwa penyelundupan ini tidak terjadi karena satu penjaga yang menerima suap. Sistem pengawasan itu sendiri sudah dikuasai.
+
+Sebuah layar produksi menampilkan angka kegagalan serum ilegal. Dari dua ratus tujuh belas penerima, hanya dua puluh sembilan yang bertahan hidup. Sisanya dicatat sebagai limbah biologis.
+
+Han-Seo mengepalkan tangan. Asosiasi menyebut serum sebagai harapan terakhir manusia, sementara fasilitas ini mengubah manusia menjadi bahan percobaan sekali pakai.
+
+Kontainer diturunkan menggunakan derek otomatis. Han-Seo berpindah ke rangka langit-langit dengan Micro-Blink sebelum petugas memeriksa atap gerbong.
+
+"Material dari Sektor Lima lengkap," lapor seorang pengawas. "Kirim inti Carnage ke Laboratorium Dua. Subjek manusia ke ruang pemeriksaan."
+
+Kontainer terakhir—tempat Han-Seo bersembunyi—dibawa menuju pintu terpisah. Ketika segelnya terbuka, uap putih mengalir keluar.
+
+Di dalamnya terdapat seorang pria berzirah hitam yang diborgol pada ranjang logam. Pergelangan tangan kanannya bengkak dan bergeser dari sendi. Pada gigi gerahamnya terpasang pengaman agar ia tidak dapat menggigit kapsul bunuh diri.
+
+Han-Seo mengenalinya.
+
+Pria itu adalah penyusup yang pernah ia lumpuhkan di lorong limbah. Setelah Han-Seo meninggalkannya, pengemudi yang lolos rupanya melapor kepada Viper. Unit pembersih kemudian menemukan dan membawa orang itu kembali.
+
+"Kurir Tujuh masih belum mau bicara?" tanya pengawas.
+
+"Tidak. Direktur memerintahkan terminasi setelah pemeriksaan memori."
+
+Han-Seo menunggu hingga kontainer masuk ke ruang tahanan. Dua penjaga berdiri di depan pintu, sedangkan pengawas kembali ke ruang bongkar.
+
+Lampu koridor berkedip satu kali.
+
+Saat menyala kembali, kedua penjaga telah terkulai. Han-Seo menekan saraf leher mereka tanpa mematahkan tulang. Ia menyeret keduanya ke ruang peralatan, mengambil kartu akses, lalu masuk ke ruang tahanan.
+
+Pria di atas ranjang membuka mata ketika borgolnya terlepas sendiri.
+
+"Siapa di sana?"
+
+Han-Seo tetap tidak terlihat. "Orang yang mematahkan pergelangan tanganmu."
+
+Wajah pria itu memucat. "Hantu di lorong limbah."
+
+"Siapa namamu?"
+
+"Kalau aku menjawab, mereka membunuhku."
+
+"Mereka sudah memerintahkan kematianmu."
+
+Han-Seo meletakkan tablet milik penjaga di samping kepala pria itu. Perintah terminasi terpampang jelas pada layar.
+
+Pria tersebut menelan ludah. "Park Joon-Gil. Kurir lapangan. Aku hanya memindahkan sampel."
+
+"Siapa yang memberi perintah?"
+
+"Viper Biotics menerima daftar kebutuhan dari Inner Sanctum. Kami mengambil inti, jaringan, atau subjek yang diminta. Nama petinggi tidak pernah muncul. Semua perintah memakai kode Direktur Putih."
+
+"Berapa banyak jalur seperti Jalur Nol?"
+
+"Tiga yang kuketahui. Jalur utara memindahkan inti. Jalur barat mengirim bahan kimia ke Ground Zero. Jalur selatan digunakan untuk subjek manusia. Mungkin ada jalur lain yang hanya diketahui pengurus tingkat atas."
+
+"Mengapa chip ditanam pada Extinction-Class?"
+
+"Untuk mengirim data perkembangan dan menerima perintah sederhana. Chip itu tidak pernah mampu mengendalikan pikirannya sepenuhnya." Joon-Gil memejamkan mata sejenak. "Ketika evolusinya melewati Tyrant, ia mulai memberikan perintah palsu kepada para penjaga. Para ilmuwan tetap menjalankan uji coba karena Direktur Putih ingin melihat batas akhirnya."
+
+Artinya, bencana Distrik Delapan sebenarnya dapat dihentikan lebih awal. Para petinggi sengaja membiarkan Extinction-Class lahir demi memperoleh data.
+
+Han-Seo mengingat suara digital pada frekuensi rahasia. "Untuk apa Distrik Delapan diciptakan?"
+
+"Uji percepatan evolusi. Viper menyediakan akselerator, tapi protokol dan chip pengendali datang dari Asosiasi. Kami mengira hasil akhirnya dapat dikendalikan." Joon-Gil tertawa pahit. "Ternyata Extinction-Class itu lebih pintar daripada semua orang yang membuatnya."
+
+"Tabung yang kubawa dari lorong. Apa isinya?"
+
+"Sampel jaringan biasa dan pemancar tidur."
+
+Han-Seo terdiam.
+
+"Pemancar akan aktif jika segel tabung dibuka atau berpindah lebih dari dua kilometer dari titik transaksi," lanjut Joon-Gil. "Kalau kau menyimpannya di suatu tempat, lokasi itu sudah masuk daftar pengawasan."
+
+Kamar Han-Seo di barak Obsidian telah menjadi perangkap. Keputusannya untuk tidak kembali kini menyelamatkan kerahasiaannya sendiri.
+
+Alarm lembut berbunyi dari luar. Bukan alarm pelarian tahanan, melainkan pemberitahuan perubahan sistem keamanan.
+
+> **PEMINDAIAN KESEIMBANGAN TERMAL DIAKTIFKAN.**
+
+Joon-Gil menatap langit-langit. "Mereka menyalakan pemindai ruang kosong. Kamuflasemu tidak akan bertahan."
+
+Kamera di koridor tidak mencari tubuh panas. Perangkat itu memetakan aliran kalor dari satu permukaan ke permukaan lain. Tubuh Han-Seo yang menyerap panas akan tampak sebagai lubang tanpa pertukaran energi.
+
+Sebuah garis cahaya biru menyapu masuk melalui celah pintu.
+
+"Kalau ingin hidup, tetap di sini sampai aku mematikan penguncinya," ujar Han-Seo.
+
+"Kau percaya padaku?"
+
+"Tidak. Itu sebabnya satu tanganmu masih kuborgol."
+
+Han-Seo keluar tepat sebelum pemindai mencapai ruang tahanan. Ia mematikan Kamuflase Termodinamika dan mengenakan mantel putih milik penjaga. Dengan kartu akses di tangan, ia berjalan seperti petugas biasa menuju pusat arsip.
+
+Di persimpangan pertama, ia melewati ruang observasi yang berisi enam kapsul manusia. Lima kapsul sudah kosong dan diberi tanda gagal. Kapsul keenam menampung seorang remaja perempuan dengan jaringan hitam menjalar di lengannya. Sensor menunjukkan tubuhnya masih melawan perubahan XN-99.
+
+Han-Seo mencatat nomor ruangan. Ia tidak dapat membebaskan seluruh tahanan sebelum memahami sistem penguncian, tetapi ia berjanji tidak akan meninggalkan fasilitas itu sendirian.
+
+Seorang dokter menghentikannya. "Nomor divisi?"
+
+Han-Seo menyerahkan kartu tanpa berbicara. Ketika dokter memeriksa layar, Han-Seo menangkap pantulan kamera pada kacamatanya. Pemindai termal baru saja berputar menuju mereka.
+
+Ia menjatuhkan baki instrumen dari meja. Saat sang dokter refleks menoleh, Han-Seo menekan titik saraf di balik telinganya dan menopang tubuhnya agar tidak jatuh. Ia mendudukkan dokter itu di kursi seolah sedang tertidur, lalu melanjutkan langkah sebelum kamera menyelesaikan putaran.
+
+Beberapa personel melewatinya tanpa curiga. Namun, saat ia mendekati gerbang laboratorium utama, sebuah pemindai wajah turun dari langit-langit.
+
+Han-Seo menunduk dan berbelok menuju pintu servis. Pintu tersebut meminta pemeriksaan telapak tangan.
+
+Langkah pasukan keamanan terdengar dari belakang. Ia tidak punya waktu mencari jalur lain.
+
+Han-Seo menempelkan tangan ke panel.
+
+Jarum mikro mengambil sampel kulit dan setetes darah. Panel berkedip kuning, kemudian berubah hijau.
+
+> **KECOCOKAN GENETIK: 99,98 PERSEN**  
+> **GARIS KETURUNAN DR. GO SEUNG-WOO TERKONFIRMASI**
+
+Pintu laboratorium terbuka dengan sendirinya.
+
+Suara perempuan terdengar dari pengeras suara ruangan.
+
+"Selamat datang di Fasilitas N-0, Go Han-Seo. Kami sudah menunggu tubuh yang kompatibel selama sebelas tahun."
+
+Pintu menutup di belakangnya.
+
+Pada saat yang sama, seluruh petugas keamanan menerima satu pemberitahuan baru:
+
+> **PEWARIS SAMPLE ZERO TELAH TIBA.**

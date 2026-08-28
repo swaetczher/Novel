@@ -6,25 +6,25 @@ Langkah kaki keempat orang itu bergegas menjauhi Toko Senjata Kagemitsu yang mul
 
 Renjiro berjalan di depan dengan dua katana yang tersarung di pinggangnya. Kepalanya terus bergerak awas memantau setiap gang sempit di sisi jalan.
 
-"Kita harus segera menuju komplek perumahan kita di blok barat," kata Renjiro tanpa menghentikan langkah kakinya. "Rumah kita hanya berjarak beberapa kilometer dari sini. Kita harus memastikan orang tua kita masih selamat."
+"Kita harus segera menuju kompleks perumahan kita di blok barat," kata Renjiro tanpa menghentikan langkah kakinya. "Rumah kita hanya berjarak beberapa kilometer dari sini. Kita harus memastikan orang tua kita masih selamat."
 
 Daiki dan Kazuki mengangguk cepat. Sorot mata mereka berdua memancarkan kecemasan yang sama besar. Di tengah situasi kiamat yang mendadak ini, keselamatan keluarga adalah hal yang paling mereka pikirkan.
 
 Namun, Paman Kagemitsu yang berjalan di barisan belakang tiba-tiba menepuk pundak Renjiro.
 
-"Tunggu, Renjiro," panggil Paman Kagemitsu dengan nada suara yang berat. "Kalian tidak perlu kembali ke komplek perumahan itu."
+"Tunggu, Renjiro," panggil Paman Kagemitsu dengan nada suara yang berat. "Kalian tidak perlu kembali ke kompleks perumahan itu."
 
 Langkah Renjiro langsung terhenti. Ia berbalik badan dan menatap Paman Kagemitsu dengan dahi berkerut. Kazuki dan Daiki pun ikut berhenti, menatap pria tua itu dengan penuh tanda tanya.
 
 "Apa maksud Paman?" tanya Kazuki dengan dahi berkerut. "Keluarga kami ada di sana!"
 
-Paman Kagemitsu menghela napas pendek untuk menenangkan napasnya. "Dua jam sebelum kalian datang ke tokoku, aku sempat mendengar siaran radio darurat dari pasukan militer Jepang. Komplek perumahan kalian di wilayah Hanazono sudah disterilisasi terlebih dahulu oleh pasukan tentara."
+Paman Kagemitsu menghela napas pendek untuk menenangkan diri. "Dua jam sebelum kalian datang ke tokoku, aku sempat mendengar siaran radio darurat dari pasukan militer Jepang. Kompleks perumahan kalian di wilayah Hanazono sudah disisir oleh pasukan tentara."
 
 Mendengar hal itu, Daiki langsung melangkah maju. "Disterilisasi? Maksudnya mereka semua selamat?"
 
-"Ya," jawab Paman Kagemitsu sambil mengangguk pasti. "Para tentara bergerak cepat menyapu bersih wilayah itu karena lokasinya yang dekat dengan pusat evakuasi. Seluruh penghuni komplek yang selamat sudah diangkut menggunakan truk militer baja menuju Pangkalan Udara JSDF Tachikawa di Tokyo Barat. Tempat itu kini dijadikan zona aman dan pusat pengungsian utama."
+"Aku tidak bisa memastikan semua orang selamat," jawab Paman Kagemitsu. "Siaran itu menyebut konvoi dari kompleks Hanazono diarahkan menuju Pangkalan Udara JSDF Tachikawa. Nama keluarga kalian tidak dibacakan. Tachikawa disebut sebagai pusat pengungsian utama, tetapi kita baru akan tahu siapa yang berhasil naik setelah melihat daftar penyintas di sana."
 
-Penjelasan Paman Kagemitsu membuat beban berat di dada ketiga pemuda itu langsung luruh. Mereka saling bertatapan dengan perasaan lega yang luar biasa. Orang tua dan keluarga mereka tidak terjebak di dalam rumah di tengah kepungan zombie. Mereka sudah berada di tangan militer.
+Kabar itu memberi mereka harapan, tetapi bukan kepastian. Renjiro merasakan dadanya sedikit longgar sekaligus semakin berat. Keluarga mereka mungkin sudah dibawa militer; mungkin pula tertinggal sebelum konvoi berangkat. Satu-satunya cara memperoleh jawaban adalah mencapai Tachikawa.
 
 "Tachikawa..." gumam Renjiro sambil membayangkan peta kota Tokyo. "Jaraknya cukup jauh ke arah barat dari posisi kita sekarang."
 
@@ -86,8 +86,8 @@ Pertarungan singkat itu selesai tanpa ada suara gaduh yang memicu kepanikan di b
 
 Renjiro menyarungkan kembali pedangnya, lalu memeriksa salah satu saku di rompi antipeluru zombie tentara yang baru saja ia kalahkan. Di dalamnya, ia menemukan sebuah peta navigasi taktis militer yang masih bersih.
 
-"Peta ini menunjukkan rute aman yang dilewati konvoi militer menuju Tachikawa," kata Renjiro dengan senyum tipis di wajahnya.
+"Peta ini menunjukkan rute yang pernah dipakai konvoi militer menuju Tachikawa," kata Renjiro. Di beberapa ruas terdapat tanda silang merah dan catatan waktu yang sudah lewat berjam-jam. "Bukan berarti jalurnya masih aman."
 
-"Bagus," sahut Paman Kagemitsu. "Dengan peta ini, kita tahu jalan layang mana yang tidak terputus di depan."
+"Setidaknya kita punya acuan," sahut Paman Kagemitsu. "Kita tetap harus memeriksa setiap percabangan."
 
-Mereka berempat kembali merapatkan ransel perbekalan dan memegang erat senjata masing-masing. Di bawah langit Tokyo yang perlahan mulai menggelap, mereka melanjutkan perjalanan panjang di atas jalan layang tol, melangkah pasti menuju Pangkalan Udara Tachikawa demi pergi ke zona aman bertemu dengan keluarga mereka.
+Mereka berempat kembali merapatkan ransel dan memegang senjata masing-masing. Di bawah langit yang mulai gelap, mereka melanjutkan perjalanan ke barat menuju Tachikawa—bukan menuju jaminan keselamatan, melainkan menuju satu-satunya petunjuk tentang keluarga mereka.

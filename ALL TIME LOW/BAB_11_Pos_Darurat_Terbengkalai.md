@@ -1,6 +1,6 @@
 # NOVEL: ALL TIME LOW
 
-## BAB 11: GERBANG TOL TERBENGKALAI
+## BAB 11: POS DARURAT TERBENGKALAI
 
 Langit di atas Tokyo runtuh menjadi kelabu pekat saat malam mulai turun. Angin dingin berhembus kencang di sepanjang jalur Jalan Layang Tol Metropolitan, menyapu debu jalanan dan membawa aroma tajam besi berkarat serta bau busuk samar dari arah Shinjuku di bawah sana. Kota itu tampak mati. Blok-blok beton gedung pencakar langit berdiri kokoh layaknya nisan raksasa tanpa satu pun pendar cahaya.
 
@@ -8,7 +8,7 @@ Renjiro berlutut di samping kap mobil sedan yang ringsek. Kedua tangannya memben
 
 Daiki berdiri di dekatnya, menyalakan senter kecil dengan jempol kirinya. Cahaya senter itu ditutupi sebagian oleh telapak tangannya yang gemetar halus, menyisakan seberkas sinar redup agar tidak memancing perhatian monster dari bawah layang.
 
-"Pos pemeriksaan terdekat ada di Gerbang Tol Ogikubo," bisik Renjiro. Ujung telunjuknya menekan koordinat bertanda silang merah. "Dua kilometer di depan kita. Di sana pos pertahanan terakhir sebelum evakuasi ke Tachikawa kolaps."
+"Pos pemeriksaan darurat terdekat ada di Simpang Layang Ogikubo," bisik Renjiro. Ujung telunjuknya menekan koordinat bertanda silang merah. "Dua kilometer di depan kita. Di sana pos pertahanan terakhir sebelum evakuasi ke Tachikawa kolaps."
 
 "Aku hanya berharap pangkalan militer di Tachikawa punya persediaan katsu curry yang hangat," gumam Kazuki seraya membetulkan ikatan perisai wajan besi tebal di lengan kirinya. "Perutku sudah bernyanyi sejak kita meninggalkan toko senjata Kagemitsu yang terbakar."
 
@@ -24,7 +24,7 @@ Mereka kembali menyusuri labirin kendaraan mati. Ratusan mobil sedan, bus kota, 
 
 Dua puluh menit melangkah dalam kesunyian yang mencekam, bayangan struktur beton besar mulai memotong kabut malam. 
 
-Gerbang Tol Ogikubo.
+Pos Darurat Simpang Layang Ogikubo.
 
 Tiga gardu pembayaran tol berdiri kaku melintang di jalan raya. Di sekelilingnya, barikade kawat berduri koyak di beberapa titik. Tumpukan karung pasir pelindung jebol, memuntahkan tanah kering ke jalan. Dua jip militer berpelindung baja terparkir serong di jalur tengah, dikelilingi belasan bangkai mobil sipil yang ringsek. Lampu darurat kuning di atas gardu tol berputar malas, berkedip-kedip sekarat karena baterai cadangan yang hampir habis daya.
 

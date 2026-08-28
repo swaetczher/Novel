@@ -24,7 +24,7 @@ KREEEET... KRAK!
 
 Retakan rambut mulai menjalar cepat di permukaan kaca silinder setebal sepuluh sentimeter itu. Cairan hijau merembes keluar, menetes ke lantai ubin putih dan mengeluarkan asap tipis berbau zat kimia menyengat.
 
-Paman Kagemitsu mengangkat tombak yari miliknya, memasang kuda-kuda siaga di samping jip militer mereka yang hancur di luar pintu besi. "Bersiaplah! Makhluk itu keluar!"
+Paman Kagemitsu mengangkat tombak yari miliknya dan memasang kuda-kuda di dekat pintu besi menuju jalur servis. "Bersiaplah! Makhluk itu keluar!"
 
 PRANGGG!
 
@@ -94,7 +94,7 @@ Renjiro menyipitkan matanya, membaca baris teks merah di layar komputer tersebut
 
 Jantung Renjiro berdegup kencang. Dingin menyergap tengkuknya. 
 
-Tachikawa. Tempat pangkalan militer utama di mana keluarga mereka dan ribuan pengungsi sipil diselamatkan. Monster-monster ini tidak dikirim ke sana untuk dijinakkan, melainkan dikirim sebagai uji coba senjata biologis aktif. Pangkalan militer itu bukan zona aman—tempat itu adalah laboratorium uji coba lapangan!
+Tachikawa. Tempat yang mungkin menampung keluarga mereka dan ribuan pengungsi. Dokumen itu belum membuktikan seluruh pangkalan terlibat, tetapi seseorang di dalam JSDF jelas menerima kiriman subjek Gen-Tech. Zona aman itu telah disusupi kepentingan yang jauh lebih berbahaya daripada wabah di luar.
 
 "Renjiro! Makhluk ini tidak akan bertahan lama di bawah!" teriak Daiki seraya memapah Paman Kagemitsu yang memegangi rusuknya yang cedera. "Kita harus keluar sekarang!"
 
@@ -118,7 +118,7 @@ Namun, belum sempat mereka menarik napas lega, suasana di sekeliling mereka tera
 
 Jalan raya itu sunyi senyap. Tidak ada zombie yang berkeliaran di area luar ini. 
 
-Tiba-tiba, puluhan cahaya laser merah kecil berkedip serempak di udara pagi yang berkabut, mengarah langsung ke dada, kepala, dan punggung mereka berempat. Ratusan titik merah laser pembidik mengunci pergerakan mereka tanpa ampun.
+Tiba-tiba, belasan cahaya laser merah berkedip di udara pagi yang berkabut, mengarah ke dada dan kepala mereka berempat. Setiap orang dikunci oleh beberapa pembidik sekaligus.
 
 Dari balik reruntuhan kendaraan sipil dan pepohonan di tepi jalan, belasan prajurit berseragam taktis hitam lengkap dengan rompi antipeluru tebal, helm pelindung wajah, dan senapan serbu otomatis muncul perlahan. Di lengan seragam hitam mereka, tertera logo heliks ganda perak yang sangat familier.
 

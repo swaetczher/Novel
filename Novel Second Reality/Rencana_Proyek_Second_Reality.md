@@ -1,5 +1,15 @@
 # SECOND REALITY — MASTER BLUEPRINT PROYEK
 
+## KANON KONTINUITAS (ACUAN MUTLAK)
+
+* **Titik awal cerita:** Ryu Jin, Kang Dojin, dan Han Shin-woo berusia 19 tahun. Choi Min-ho berusia 22 tahun.
+* **Setelah lompatan waktu satu tahun:** Ryu Jin, Dojin, dan Shin-woo berusia 20 tahun; Min-ho berusia 23 tahun.
+* **Tragedi lima tahun lalu:** Kejatuhan Ryu Energy Group, pembantaian Genryu-kai, pembunuhan Hakim Han Sung-jae, dan kematian Jaksa Choi terjadi dalam rangkaian konspirasi yang sama lima tahun sebelum Bab 1.
+* **Nama tokoh:** Tawan hanya merujuk kepada putra Tetua Desa Phra Khann. Pemimpin tertinggi Kartel Black Ant bernama **Krao**.
+* **Zenith Tower:** Kwon Hyeok-tae tidak berada di Zenith Tower. Hanya Kolonel Yoon Sang-chul yang ditangkap di sana. Kwon baru dieksekusi di bunker Galangan Baja Daechang.
+* **Identitas Ryu Jin:** Hubungan Ryu Jin dengan Ryu Kenzo dan Genryu-kai tidak boleh diketahui publik sebelum pengungkapan pada Bab 51–55.
+* Jika narasi lama bertentangan dengan bagian ini, bagian kanon inilah yang menjadi acuan.
+
 ## 📌 KONSEP UTAMA
 * **Judul Project:** *Second Reality*
 * **Target Platform:** Quarterfull.io (Format Web Comic / Serial Novel Vertikal)
@@ -115,7 +125,6 @@
 * **Bab 61 (Taring Naga di Hutan Bambu):** Pendaratan senyap di hutan bambu perbatasan Thailand. Ryu Jin memotong barisan luar kartel dan membantai unit artileri mortar Kartel Black Ant menggunakan teknik pedang *Iaijutsu* dan jentikan baut baja taktis (*Seiketsu-jutsu*). ✅
 * **Bab 62 (Pertahanan Tembok Abu):** Pertempuran benteng dipimpin Dojin menggunakan tiang besi dan pintu baja bekas sebagai tameng. Min-ho meretas frekuensi radio taktis kartel dan mengirim pesan perintah mundur palsu lewat suara tiruan sintesis untuk mengacaukan barisan depan musuh. ✅
 * **Bab 63 (Kepala Sang Semut Hitam):** Trio Predator menyerbu tenda komando gabungan kartel. Ryu Jin mengeksekusi Somchai dan Tawan dalam duel pedang singkat yang brutal, lalu melempar kepala mereka ke tengah barisan musuh. Moral musuh runtuh dan ratusan prajurit kartel melarikan diri kocar-kacir ke hutan. Kemenangan mutlak ORCA diraih saat fajar menyingsing, bersiap menghadapi target berikutnya: Tokyo. ✅
-
 
 
 
