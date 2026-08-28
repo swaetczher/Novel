@@ -3330,7 +3330,7 @@ Min-ho menyapu darah di pelipisnya. Di balik rasa sakit yang membakar, Min-ho me
 
 *SET!*
 
-Saat Seo Jin-wook meluncur maju dengan sabetan ganda belati bergeriginya, Min-ho merogoh segenggam debu semen beton kasar dari pilar retak di belakangnya, lalu melemparkannya tepat ke arah mata Seo Jin-wook!
+Saat Seo Jin-wook meluncur maju dengan sabetan ganda belati bergeriginya, Min-ho merogoh segenggam debu beton beton kasar dari pilar retak di belakangnya, lalu melemparkannya tepat ke arah mata Seo Jin-wook!
 
 *WHOSH!*
 
@@ -4210,7 +4210,7 @@ Shin-woo berbalik, memberi kode pada Sersan Park dan seluruh prajurit Grey Hawk 
 
 *DOR! DOR! DOR! DOR!*
 
-Rentetan tembakan otomatis senapan serbu Grey Hawk meledak serempak, menggema memekakkan telinga di seluruh penjuru kompleks semen. Shin-woo melesat ke tengah lapangan terbuka, memicu alarm darurat manual pabrik secara sengaja dan menembak mati setiap komandan regu musuh yang keluar dari barak.
+Rentetan tembakan otomatis senapan serbu Grey Hawk meledak serempak, menggema memekakkan telinga di seluruh penjuru kompleks beton. Shin-woo melesat ke tengah lapangan terbuka, memicu alarm darurat manual pabrik secara sengaja dan menembak mati setiap komandan regu musuh yang keluar dari barak.
 
 Ratusan prajurit Kartel Mamba yang panik sontak terdistraksi total. Mengira bahwa serangan musuh terkonsentrasi penuh di halaman depan, ratusan tentara bayaran itu berhamburan keluar dari hanggar dan gedung logistik, memusatkan seluruh daya tembak dan perhatian mereka ke arah Shin-woo dan pasukan Grey Hawk.
 
@@ -4236,7 +4236,7 @@ Ryu Jin menarik pisau taktisnya, lalu menatap Dojin dan Asura.
 
 **Ruang Interogasi Bawah Tanah.**
 
-Ruangan sempit berdinding semen tebal itu diterangi oleh satu bohlam kuning redup yang berayun pelan.
+Ruangan sempit berdinding beton tebal itu diterangi oleh satu bohlam kuning redup yang berayun pelan.
 
 Kapten Lee Han-joon tergantung tak berdaya dengan kedua tangan diborgol rantai besi ke langit-langit beton. Wajahnya babak belur, seragam taktis abu-abunya basah kuyup oleh darah segar yang terus menetes dari pelipis dan tulang rusuknya yang retak. Napas perwira Korea itu tersengal berat di ambang batas kesadaran.
 
@@ -4244,7 +4244,7 @@ Di hadapannya, Sarith—pemimpin Kartel Mamba—berdiri dengan kemeja tergulung 
 
 *DEG! DEG!*
 
-Getaran samar dari rentetan tembakan pengalih perhatian yang dipimpin Shin-woo di halaman atas merambat turun melalui pilar beton, menjatuhkan butiran debu semen ke bahu Sarith.
+Getaran samar dari rentetan tembakan pengalih perhatian yang dipimpin Shin-woo di halaman atas merambat turun melalui pilar beton, menjatuhkan butiran debu beton ke bahu Sarith.
 
 Sarith mengernyitkan dahi reptilnya, menatap ke arah langit-langit. Ia menekan tombol *walkie-talkie* di kerahnya berkali-kali, namun perangkat itu hanya memuntahkan desisan statis akibat sabotase frekuensi Min-ho.
 
@@ -4258,7 +4258,7 @@ Amarah Sarith meledak. Ia mencengkeram belati bergerigi di meja, mengarahkannya 
 
 *BRAAAKKK!*
 
-Pintu baja ruang interogasi terhantam lepas dari dinding semennya oleh tendangan kaki berkekuatan penuh milik Kang Dojin, menghantam lantai dengan suara menggelegar.
+Pintu baja ruang interogasi terhantam lepas dari dinding betonnya oleh tendangan kaki berkekuatan penuh milik Kang Dojin, menghantam lantai dengan suara menggelegar.
 
 Dua pengawal elit Mamba yang bersiaga di sudut ruangan langsung memutar moncong senapan otomatis mereka ke arah pintu.
 
@@ -4368,7 +4368,7 @@ Han-joon mencabut belati kedua dari pinggang mayat pengawal di dekatnya, lalu me
 
 *SLASH!*
 
-Dengan satu tarikan napas panjang, Han-joon menyayat dan memotong persendian leher Sarith dalam satu tebasan horizontal yang brutal hingga kepala pemimpin Kartel Mamba itu terputus seutuhnya dari raga. Darah hitam menyembur deras membasahi dinding semen. Tubuh tanpa kepala itu terkulai lemas di atas meja interogasi.
+Dengan satu tarikan napas panjang, Han-joon menyayat dan memotong persendian leher Sarith dalam satu tebasan horizontal yang brutal hingga kepala pemimpin Kartel Mamba itu terputus seutuhnya dari raga. Darah hitam menyembur deras membasahi dinding beton. Tubuh tanpa kepala itu terkulai lemas di atas meja interogasi.
 
 Han-joon melepaskan belatinya, mencengkeram rambut kepala Sarith yang telah terpenggal. Napas sang kapten tersengal-sengal, darah menetes dari sekujur tubuhnya, namun beban duka dan amarah yang menghimpit dadanya selama dua hari akhirnya terangkat.
 
@@ -5824,7 +5824,7 @@ Mereka mendarat dengan mulus di lereng bukit curam yang dipenuhi rimbunnya pohon
 Dari arah lembah yang berjarak sekitar dua kilometer, gema dentuman meriam mortar terdengar beruntun mengguncang tanah di bawah kaki mereka.
 
 DUMM! DUMM! DUMM!
-"Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air. "Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding semen benteng ORCA akan jebol sebelum fajar."
+"Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air. "Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding beton benteng ORCA akan jebol sebelum fajar."
 
 Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh Tawan dan jaringan lokal ORCA. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
 
@@ -5891,13 +5891,13 @@ Detik berikutnya, dua ledakan keras menghancurkan meriam mortar tersebut, menand
 **Pukul 02.15 Dini Hari.**
 **Gerbang Utama Benteng ORCA, Black Valley.**
 
-Bau anyir mesiu, asap hitam dari ban terbakar, dan aroma debu semen yang pecah memenuhi udara di sekitar tembok pertahanan depan benteng ORCA. Di bawah guyuran hujan lebat yang terus mengguyur lembah dengan kejam, puluhan kombatan lokal—para mantan warga Phra Khann yang dipersenjatai seadanya—berlindung di balik dinding beton setinggi tiga meter yang mulai retak-retak akibat tembakan peluru beruntun. Dari balik terowongan perlindungan bawah tanah benteng, suara tangisan ketakutan anak-anak dan wanita terdengar teredam, membakar semangat para bek untuk tidak membiarkan satu pun kombatan musuh menembus garis pertahanan ini.
+Bau anyir mesiu, asap hitam dari ban terbakar, dan aroma debu beton yang pecah memenuhi udara di sekitar tembok pertahanan depan benteng ORCA. Di bawah guyuran hujan lebat yang terus mengguyur lembah dengan kejam, puluhan kombatan lokal—para mantan warga Phra Khann yang dipersenjatai seadanya—berlindung di balik dinding beton setinggi tiga meter yang mulai retak-retak akibat tembakan peluru beruntun. Dari balik terowongan perlindungan bawah tanah benteng, suara tangisan ketakutan anak-anak dan wanita terdengar teredam, membakar semangat para bek untuk tidak membiarkan satu pun kombatan musuh menembus garis pertahanan ini.
 
 Dari luar benteng, ratusan kombatan gabungan Kartel Black Ant dan Kartel Red Lizard terus merangsek maju. Mereka berteriak liar di bawah kilatan cahaya tembakan senapan serbu, berlindung di balik kendaraan jip lapis baja dan tameng besi darurat. Aliran lumpur tebal akibat hujan badai mengalir deras menuruni lereng lembah, membuat pergerakan infanteri menjadi lambat, namun pihak kartel menggunakan kendaraan penggerak empat roda bersirine nyaring untuk menerobos rintangan alam tersebut. Mereka menembakkan peluncur granat buatan Soviet dan senapan mesin ringan secara membabi buta ke arah dinding pertahanan benteng.
 
 *DUDUDUDUDUDU!*
 
-Rentetan peluru senapan mesin berat menghantam bagian atas tembok semen pertahanan, merontokkan puing-puing semen abu-abu yang menimbun kepala para bek. Banyak pertahanan darurat yang mulai roboh akibat hantaman peluru kaliber besar tersebut.
+Rentetan peluru senapan mesin berat menghantam bagian atas tembok beton pertahanan, merontokkan puing-puing beton abu-abu yang menimbun kepala para bek. Banyak pertahanan darurat yang mulai roboh akibat hantaman peluru kaliber besar tersebut.
 
 "Tahan posisi! Jangan ada yang mundur satu langkah pun!" teriak Dojin dengan suara parau yang berwibawa, memecah kebisingan medan perang.
 
@@ -5951,7 +5951,7 @@ Sisa peluru dari menara pengawas ORCA dimuntahkan secara terarah, menghujani bar
 
 Dojin menyeka sisa keringat basah bercampur lumpur di dahinya, matanya menatap tajam ke arah kegelapan bukit utara yang masih diguyur hujan deras.
 
-"Jin... Shin-woo..." bisik Dojin dengan napas satu-satu yang berat. "Jika kalian tidak segera mengeksekusi kepala ular kartel itu sekarang, kita semua akan terkubur di bawah puing semen benteng ini."
+"Jin... Shin-woo..." bisik Dojin dengan napas satu-satu yang berat. "Jika kalian tidak segera mengeksekusi kepala ular kartel itu sekarang, kita semua akan terkubur di bawah puing beton benteng ini."
 
 Di kejauhan, kilatan petir kembali menyambar di atas bukit, menandakan fajar maut yang akan segera menyingsing di atas tanah Black Valley yang bersimbah darah.
 ## BAB 63: KEPALA SANG SEMUT HITAM
@@ -6027,7 +6027,7 @@ Melihat kepala kedua pimpinan tertinggi mereka menggelinding berlumuran lumpur d
 
 Pengepungan benteng ORCA yang mengerikan selama berjam-jam resmi berakhir dalam kedamaian pagi yang sunyi.
 
-Dari gerbang bawah benteng, Dojin dan para kombatan lokal ORCA menatap ke arah puncak bukit utara dengan sorak kemenangan yang membahana memecah langit fajar. Banyak dari mereka yang menangis haru, menyadari bahwa bayang-bayang ketakutan dari kartel yang menindas mereka selama bertahun-tahun kini telah musnah sepenuhnya. Dojin terduduk di atas bongkahan semen runtuh, menyeka darah di pelipisnya sambil tersenyum lega menatap bendera ORCA yang masih berkibar tegak di atas dinding benteng.
+Dari gerbang bawah benteng, Dojin dan para kombatan lokal ORCA menatap ke arah puncak bukit utara dengan sorak kemenangan yang membahana memecah langit fajar. Banyak dari mereka yang menangis haru, menyadari bahwa bayang-bayang ketakutan dari kartel yang menindas mereka selama bertahun-tahun kini telah musnah sepenuhnya. Dojin terduduk di atas bongkahan beton runtuh, menyeka darah di pelipisnya sambil tersenyum lega menatap bendera ORCA yang masih berkibar tegak di atas dinding benteng.
 
 Ryu Jin berdiri tegak di ujung tebing bukit, membiarkan angin pagi menerpa mantel hitamnya yang basah. Katana di tangan kanannya telah bersih dari noda darah setelah disapu bersih. Han Shin-woo melangkah mendekatinya, menyarungkan karambitnya dengan tatapan lurus ke depan.
 

@@ -2354,7 +2354,7 @@ Di tengah kepungan ketat belasan anggota Cerberus bersenjata tajam tersebut.
 
 Berdiri seorang pemuda berusia sembilan belas tahun dengan postur tubuh atletis berotot padat: **Han Shin-woo**.
 
-Shin-woo mengenakan kaus hitam kusam yang dipenuhi noda debu semen gudang.
+Shin-woo mengenakan kaus hitam kusam yang dipenuhi noda debu beton gudang.
 
 Wajahnya yang tampan tampak mengeras, dipenuhi sorot sepasang mata yang sangat tajam, dingin, dan sarat akan dendam.
 
@@ -2474,7 +2474,7 @@ Ia mengalkulasi pergerakan musuh dengan presisi matematis demi efektivitas renca
 
 Sebelum barisan anggota Cerberus sempat menyadari kehadiran dua orang penyusup baru di sudut buta mereka.
 
-Ryu Jin melayangkan satu lecutan paku baja presisi dari jemari tangan kanannya ke arah atas dinding semen.
+Ryu Jin melayangkan satu lecutan paku baja presisi dari jemari tangan kanannya ke arah atas dinding beton.
 
 Paku baja itu melesat cepat mengincar kotak sekring instalasi listrik utama gedung.
 
@@ -5386,7 +5386,7 @@ Min-ho menyapu darah di pelipisnya. Di balik rasa sakit yang membakar, Min-ho me
 
 *SET!*
 
-Saat Seo Jin-wook meluncur maju dengan sabetan ganda belati bergeriginya, Min-ho merogoh segenggam debu semen beton kasar dari pilar retak di belakangnya, lalu melemparkannya tepat ke arah mata Seo Jin-wook!
+Saat Seo Jin-wook meluncur maju dengan sabetan ganda belati bergeriginya, Min-ho merogoh segenggam debu beton beton kasar dari pilar retak di belakangnya, lalu melemparkannya tepat ke arah mata Seo Jin-wook!
 
 *WHOSH!* "AKH! MATAKU!" jerit Seo Jin-wook tersentak kaget, matanya terpejam perih secara refleks.
 
@@ -6569,7 +6569,7 @@ Shin-woo berbalik, memberi kode pada Sersan Park dan tiga spesialis jarak dekat 
 
 *DOR! DOR! DOR! DOR!*
 
-Rentetan tembakan otomatis dari empat anggota tim penyerbu Grey Hawk meledak serempak, menggema memekakkan telinga di seluruh penjuru kompleks semen. Dari bukit, enam penembak runduk di bawah arahan Min-ho melumpuhkan lampu sorot dan menjaga agar bala bantuan tidak mendekati gerbang. Shin-woo melesat ke tengah lapangan terbuka, memicu alarm darurat manual pabrik secara sengaja dan menembak mati setiap komandan regu musuh yang keluar dari barak.
+Rentetan tembakan otomatis dari empat anggota tim penyerbu Grey Hawk meledak serempak, menggema memekakkan telinga di seluruh penjuru kompleks beton. Dari bukit, enam penembak runduk di bawah arahan Min-ho melumpuhkan lampu sorot dan menjaga agar bala bantuan tidak mendekati gerbang. Shin-woo melesat ke tengah lapangan terbuka, memicu alarm darurat manual pabrik secara sengaja dan menembak mati setiap komandan regu musuh yang keluar dari barak.
 
 Ratusan prajurit Kartel Mamba yang panik sontak terdistraksi total. Mengira bahwa serangan musuh terkonsentrasi penuh di halaman depan, ratusan tentara bayaran itu berhamburan keluar dari hanggar dan gedung logistik, memusatkan seluruh daya tembak dan perhatian mereka ke arah Shin-woo dan pasukan Grey Hawk.
 
@@ -6595,7 +6595,7 @@ Ryu Jin menarik pisau taktisnya, lalu menatap Dojin dan Asura.
 
 **Ruang Interogasi Bawah Tanah.**
 
-Ruangan sempit berdinding semen tebal itu diterangi oleh satu bohlam kuning redup yang berayun pelan.
+Ruangan sempit berdinding beton tebal itu diterangi oleh satu bohlam kuning redup yang berayun pelan.
 
 Kapten Lee Han-joon tergantung tak berdaya dengan kedua tangan diborgol rantai besi ke langit-langit beton. Wajahnya babak belur, seragam taktis abu-abunya basah kuyup oleh darah segar yang terus menetes dari pelipis dan tulang rusuknya yang retak. Napas perwira Korea itu tersengal berat di ambang batas kesadaran.
 
@@ -6603,7 +6603,7 @@ Di hadapannya, Sarith—pemimpin Kartel Mamba—berdiri dengan kemeja tergulung 
 
 *DEG! DEG!*
 
-Getaran samar dari rentetan tembakan pengalih perhatian yang dipimpin Shin-woo di halaman atas merambat turun melalui pilar beton, menjatuhkan butiran debu semen ke bahu Sarith.
+Getaran samar dari rentetan tembakan pengalih perhatian yang dipimpin Shin-woo di halaman atas merambat turun melalui pilar beton, menjatuhkan butiran debu beton ke bahu Sarith.
 
 Sarith mengernyitkan dahi reptilnya, menatap ke arah langit-langit. Ia menekan tombol *walkie-talkie* di kerahnya berkali-kali, namun perangkat itu hanya memuntahkan desisan statis akibat sabotase frekuensi Min-ho.
 
@@ -6617,7 +6617,7 @@ Amarah Sarith meledak. Ia mencengkeram belati bergerigi di meja, mengarahkannya 
 
 *BRAAAKKK!*
 
-Pintu baja ruang interogasi terhantam lepas dari dinding semennya oleh tendangan kaki berkekuatan penuh milik Kang Dojin, menghantam lantai dengan suara menggelegar.
+Pintu baja ruang interogasi terhantam lepas dari dinding betonnya oleh tendangan kaki berkekuatan penuh milik Kang Dojin, menghantam lantai dengan suara menggelegar.
 
 Dua pengawal elit Mamba yang bersiaga di sudut ruangan langsung memutar moncong senapan otomatis mereka ke arah pintu.
 
@@ -6723,7 +6723,7 @@ Han-joon mencabut belati kedua dari pinggang mayat pengawal di dekatnya, lalu me
 
 *SLASH!*
 
-Dengan satu tarikan napas panjang, Han-joon menyayat dan memotong persendian leher Sarith dalam satu tebasan horizontal yang brutal hingga kepala pemimpin Kartel Mamba itu terputus seutuhnya dari raga. Darah hitam menyembur deras membasahi dinding semen. Tubuh tanpa kepala itu terkulai lemas di atas meja interogasi.
+Dengan satu tarikan napas panjang, Han-joon menyayat dan memotong persendian leher Sarith dalam satu tebasan horizontal yang brutal hingga kepala pemimpin Kartel Mamba itu terputus seutuhnya dari raga. Darah hitam menyembur deras membasahi dinding beton. Tubuh tanpa kepala itu terkulai lemas di atas meja interogasi.
 
 Han-joon melepaskan belatinya, mencengkeram rambut kepala Sarith yang telah terpenggal. Napas sang kapten tersengal-sengal, darah menetes dari sekujur tubuhnya, namun beban duka dan amarah yang menghimpit dadanya selama dua hari akhirnya terangkat.
 
