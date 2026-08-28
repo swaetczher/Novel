@@ -8135,318 +8135,242 @@ Krao adalah pimpinan tertinggi Kartel Black Ant yang menguasai wilayah perbatasa
 
 "Surel balasan dari mereka mengonfirmasi bahwa mereka telah bersekutu dengan sisa-sisa tentara bayaran Hydra dan Mamba," sambung Min-ho.
 
-"Mereka merencanakan penyerbuan gabungan berskala besar ke benteng ORCA dalam waktu empat puluh delapan jam ke depan."
+"Mereka merencanakan penyerbuan gabungan berskala besar ke benteng ORCA dalam waktu dekat."
 
-Informasi tersebut bagaikan hantaman tumpul yang seketika membekukan atmosfer di dalam ruang komando.
+Tiba-tiba, telepon satelit khusus milik Ryu Jin yang tergeletak di atas meja berdering nyaring memecah ketegangan.
 
-Benteng Black Valley adalah tempat perlindungan bagi ratusan warga sipil pelarian Desa Phra Khann yang telah dihancurkan kartel sebelumnya.
+Jalur panggilan darurat yang terenkripsi aman memancarkan pendar lampu merah berkedip cepat.
 
-Tempat itu juga merupakan basis kekuatan tempur utama aliansi ORCA yang saat ini hanya dijaga oleh Dojin dan beberapa personel lokal.
+Jin meraih gawai satelit tersebut, lalu menggeser tombol terima ke arah telinganya.
 
-"Jika data kelemahan gerbang baja kita bocor..." desis Jae-hyeok dengan wajah yang mendadak pucat pasi akibat rasa cemas.
+"Bicara," ucap Jin singkat dan padat.
 
-"Mereka bisa meratakan benteng itu dalam sekali serang menggunakan mortir berat dari balik bukit."
+*["Jin, aku Lee Tae-gyu,"]* suara Ketua Detektif Nasional terdengar tergesa-gesa namun sarat wibawa dari seberang telepon.
 
-Han Shin-woo mengepalkan kedua tangannya di atas meja dengan sangat erat hingga buku-buku jarinya memutih kaku.
+*["Aku baru saja menerima informasi darurat dari sepupuku yang bertugas di komando perbatasan utara Thailand."]*
 
-Matanya berkilat dipenuhi kemarahan yang mendalam saat ia menatap sebuah map kulit hitam tebal yang diletakkan Ryu Jin di dekat kopi.
+*["Dia mengabarkan bahwa aliansi dua kartel besar, Black Ant dan Red Lizard, telah bergerak mengepung benteng ORCA di Black Valley."]*
 
-Itu adalah dokumen fisik penyelidikan kematian ayahnya yang ditemukan Ryu Jin di laci rahasia meja kerja Jenderal Kang.
+*["Mereka tahu kau dan timmu sedang berada di Korea, dan Cerberus di Seoul telah runtuh."]*
 
-Dengan tangan yang sedikit gemetar karena gejolak emosi, Shin-woo membuka lembar pertama dokumen tersebut.
+*["Mereka berniat meratakan benteng selagi kekuatanmu terbagi."]*
 
-Foto otopsi ayahnya, catatan forensik palsu yang menyatakan kasus bunuh diri, hingga surat penutupan penyelidikan terpampang di sana.
+Ryu Jin menyipitkan mata birunya yang sedingin es, menatap lurus ke arah dinding beton ruangan.
 
-Di bagian bawah disposisi dokumen, tertera tanda tangan Jenderal Kang Chul-min di samping stempel persetujuan suap dari Sindikat Kurokawa di Tokyo.
+"Berapa lama Dojin dan warga di sana bisa bertahan?" tanya Jin dingin.
 
-"Jadi selama lima tahun ini..." suara Shin-woo tercekat di tenggorokan, matanya memerah menahan tangis kemarahan yang membakar dada.
+*["Sepupuku memperkirakan gerbang luar benteng bisa runtuh dalam waktu dua puluh empat jam jika terus dihantam mortir kartel,"]* balas Tae-gyu cemas.
 
-"Ayahku dibunuh bukan karena persaingan pejabat hukum lokal di Seora."
+*["Jalur laut terlalu lambat, Jin! Kalian butuh waktu tiga hari jika menggunakan kapal penyelundup. Warga sipil di dalam benteng tidak akan selamat."]*
 
-"Beliau dilenyapkan karena menemukan jalur penyelundupan senjata militer ilegal milik Kurokawa yang masuk ke pelabuhan."
+*["Tetapi ada jalan keluar."]*
 
-Shin-woo mendongak, menatap Ryu Jin dengan pandangan mata yang dipenuhi gejolak dendam yang sangat pekat.
+*["Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan."]*
 
-"Orang-orang yang membunuh ayahku... adalah komplotan yang sama dengan bajingan yang membantai seluruh keluargamu di Kyoto, Jin!"
+*["Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang."]*
 
-Ryu Jin tidak mengalihkan pandangannya dari mata Shin-woo.
+*["Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju Thailand malam ini."]*
 
-Ia mengulurkan tangan kanannya, mencengkeram bahu kokoh Shin-woo dengan tekanan yang kuat untuk menyalurkan ketegaran tekadnya.
+*["Menteri juga telah menyiapkan perlengkapan taktis lengkap seperti baju anti peluru dan persenjataan militer di dalam jet tersebut,"]* tambah Tae-gyu.
 
-"Dendam kita mengarah pada satu titik koordinat yang sama di Jepang, Shin-woo," ucap Ryu Jin dengan nada suara yang sangat tenang dan sedingin es.
+Ryu Jin terdiam sejenak. Kalkulasi waktu dan jarak melintas cepat di otaknya.
 
-"Tetapi jika kita membiarkan benteng Black Valley runtuh sekarang, kita akan kehilangan segalanya."
+"Kami menerima fasilitas jet siluman itu, Tae-gyu," ujar Jin tegas.
 
-"Kita tidak akan memiliki basis pertahanan dan pasukan yang cukup kuat untuk menantang Kurokawa di Tokyo."
+"Tetapi katakan pada Menteri, kami menolak persenjataan api militer."
 
-Shin-woo memejamkan matanya rapat-rapat selama beberapa detik, menarik napas dalam-dalam untuk meredakan gejolak di dadanya.
+"Siapkan saja motor trail untuk mobilitas kami di zona penerjunan nanti."
 
-Saat ia membuka matanya kembali, ketakutan di wajahnya telah lenyap total, berganti dengan sorot mata tajam seorang predator.
+"Dan di dekat wilayah drop zone... siapkan dua puluh baut baja tebal dan sebuah pedang katana tradisional Jepang."
 
-"Aku paham, Jin," sahut Shin-woo dengan nada suara yang kembali tenang dan tegas.
+Tae-gyu di seberang telepon sempat tertegun heran mendengar permintaan aneh Ryu Jin, namun ia mengangguk paham.
 
-"Kita kembali ke perbatasan utara Thailand sekarang juga."
+*["Baiklah, Menteri Pertahanan menyetujui permintaanmu. Jet siluman akan lepas landas pukul 22.00 malam nanti dari pangkalan udara militer rahasia di pesisir timur. Segera bergerak ke sana."]*
 
-"Kita bersihkan dulu sampah kartel itu sebelum kita menyeberangi lautan menuju Tokyo."
-
-Ryu Jin mengangguk pelan, lalu menoleh ke arah Park Jin-woo dan Lee Jae-hyeok yang sejak tadi bersikap siaga.
-
-"Jin-woo, Jae-hyeok," panggil Ryu Jin datar.
-
-"Siap, Bos!" sahut keduanya serentak sambil menegakkan postur tubuh mereka.
-
-"Kekuatan Cerberus di Seora sudah bersih. Mulai hari ini, kendali penuh atas distrik bawah tanah ini berada di tangan kalian," perintah Jin.
-
-"Gunakan sembilan puluh persen keuntungan dari bisnis daur ulang kapal di Distrik Utara untuk membiayai kehidupan warga miskin."
-
-"Pastikan wilayah ini tetap steril dari pengaruh faksi luar."
-
-"Kami mengerti, Bos! Kami akan menjaga kota ini dengan taruhan nyawa kami!" janji Park Jin-woo dengan tangan mengepal di dada.
-
-Ryu Jin beralih menatap Min-ho yang sedang merapikan peralatan retasnya ke dalam ransel.
-
-"Min-ho, siapkan kapal cepat Oasis-III di dok bawah hanggar. Kita berangkat sekarang sebelum kabut laut menipis."
-
-Ketiga pemuda itu segera bergerak menyusuri lorong beton bawah tanah yang lembap menuju dok kapal rahasia.
-
-Di sana, sebuah kapal cepat berwarna hitam kusam tanpa lambang pengenal telah mengapung tenang di air laut yang gelap.
-
-Kapal bermesin ganda turbo-diesel itu dirancang khusus untuk membelah ombak dalam kecepatan tinggi tanpa terdeteksi radar pantai.
-
-Tepat pukul 08.00 WIB.
-
-Deru mesin kapal cepat berdentum halus, membelah kesunyian fajar yang dingin menembus kabut laut pelabuhan Seora.
-
-Trio Predator meluncur cepat meninggalkan garis pantai Korea Selatan, bersiap menghadapi badai pertempuran hidup mati di benteng Black Valley.
+Panggilan satelit terputus.
 
 ***
 
-**Keesokan Harinya.**
+Ryu Jin menutup telepon, lalu menatap Han Shin-woo yang duduk di sampingnya sambil membuka map dokumen hitam.
 
-**Pukul 09.00 WIB.**
+Itu adalah arsip dokumen penyelidikan kematian ayahnya, Hakim Han Sung-jae, yang ditemukan di laci Jenderal Kang.
 
-**Kantor Kepolisian Seoul dan Wilayah Tokyo.**
+Dokumen tersebut memuat disposisi penutupan kasus yang ditandatangani langsung oleh Jenderal Kang atas perintah dana suap dari Sindikat Kurokawa di Tokyo.
 
-Saat kapal cepat Oasis-III telah melaju jauh di perairan internasional, kegemaran besar yang sesungguhnya baru saja meletus di daratan.
+"Jadi ayahku dilenyapkan karena menyelidiki penyelundupan senjata militer ilegal milik Kurokawa yang masuk ke pelabuhan," desis Shin-woo dengan mata memerah menahan dendam.
 
-Di dalam kabin kapal yang bergoyang dihantam ombak besar, Min-ho meluncurkan naskah program otomatis dari ponsel taktisnya.
+"Dalang pembunuh ayahku... adalah musuh yang sama dengan pembantai keluargamu di Kyoto, Jin."
 
-Seluruh berkas digital, rekaman pembicaraan suap, transaksi rekening luar negeri, dan dokumen palsu milik Jenderal Kang dipublikasikan secara terbuka.
+Ryu Jin mencengkeram bahu Shin-woo dengan kuat untuk menyalurkan ketenangan tekad bajanya.
 
-Min-ho mengunggah data sensitif tersebut di beberapa situs web khusus dengan sistem keamanan berlapis agar tidak bisa dihapus oleh aparat.
+"Dendam kita tertuju pada titik yang sama di Tokyo, Shin-woo," ucap Ryu Jin dengan nada suara yang tenang dan sedingin es.
 
-Notifikasi berita itu menyebar secara instan. Tidak hanya itu, Min-ho menggunakan sisa dana Cerberus untuk membeli kampanye iklan berbayar di berbagai platform media sosial utama selama satu bulan penuh.
+"Tetapi kita harus mengamankan benteng Black Valley terlebih dahulu sebelum menyeberang ke Jepang. Bersiaplah."
 
-Strategi ini membuat berita penyalahgunaan kekuasaan militer itu melesat cepat menjadi viral dalam hitungan jam.
+Pukul 09.00 WIB.
 
-Berita tersebut membanjiri beranda jutaan pengguna internet, memaksa media arus utama Korea Selatan untuk meliput insiden tersebut karena desakan publik.
+Sebelum keberangkatan mereka, Min-ho meretas portal berita nasional dan memublikasikan seluruh berkas kejahatan Jenderal Kang secara anonim.
 
-Di gedung kepolisian nasional, Kepala Satuan Tugas Lee Tae-gyu bergerak cepat memimpin operasi penangkapan darurat.
+Data itu didukung kampanye iklan media sosial berbayar selama satu bulan menggunakan sisa dana Cerberus.
 
-Berbekal bukti digital forensik yang sangat lengkap dan valid, puluhan perwira menengah korup dan pejabat tinggi diseret keluar dari kantor mereka dalam borgol besi.
+Kegemparan besar meletus secara nasional. Tae-gyu memimpin penangkapan puluhan pejabat korup di Seoul.
 
-Mereka menghadapi tuntutan hukuman penjara seumur hidup atas pengkhianatan terhadap negara.
+Berita tersebut melompat hingga ke Tokyo, mengungkap suap pejabat kementerian pertahanan Jepang oleh Sindikat Kurokawa.
 
-Gema kegaduhan tersebut tidak berhenti di Seoul, melainkan melompati lautan luas hingga mengguncang pusat kota Tokyo.
+Di Tokyo, pimpinan Kurokawa panik dan mengancam pejabat Jepang yang terlibat agar segera membungkam media dalam waktu 24 jam atau mereka akan dibungkam selamanya.
 
-Dokumen yang disebarkan Min-ho memuat data aliran dana suap yang menghubungkan beberapa pejabat penting Jepang dengan Sindikat Kurokawa.
+Di hanggar Seora, Ryu Jin menatap layar berita.
 
-Sindikat Kurokawa adalah organisasi kejahatan terbesar yang mengendalikan aliansi tiga faksi Yakuza di Jepang.
+Korea telah runtuh, dan Tokyo mulai bergetar.
 
-Kabar ini memicu kepanikan luar biasa di kalangan birokrat Tokyo yang selama ini menerima jatah perlindungan dari Kurokawa.
+Trio Predator bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
 
-Malam harinya, di sebuah kediaman tradisional Jepang yang megah di pinggiran Tokyo, para pejabat tinggi menerima panggilan satelit misterius.
+***## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
 
-Suara dingin tanpa emosi dari petinggi Sindikat Kurokawa terdengar sangat menekan dan mengancam:
+**Pukul 22.00 WIB.**
 
-"Bungkam media itu dalam waktu dua puluh empat jam."
+**Pangkalan Udara Militer Rahasia, Pesisir Timur.**
 
-"Tarik semua berita dari peredaran publik dan hancurkan servernya."
+Di bawah guyuran gerimis tipis yang dingin di pesisir timur Korea, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di landasan pacu yang sunyi.
 
-"Jika kalian gagal melakukan tugas sederhana ini untuk melindungi nama kami..."
+Bodi pesawat itu nampak menyerap cahaya rembulan malam, memancarkan aura misterius yang sangat mematikan.
 
-"Maka kami sendiri yang akan datang untuk membungkam mulut kalian semua selamanya."
+Angin pesisir yang kencang membawa aroma garam dan kelembapan laut yang pekat, menusuk tulang di tengah kegelapan malam yang dingin.
 
-Di atas dek kapal Oasis-III yang terus membelah ombak malam, Ryu Jin menatap layar ponselnya yang menampilkan kegemparan berita tersebut.
+Trio Predator melangkah cepat menaiki tangga jet siluman tersebut dengan langkah kaki yang teratur dan penuh tekad.
 
-Sebuah seringai dingin tersungging tipis di bibirnya yang kering.
+Di dalam kabin jet yang sempit namun dipenuhi barisan instrumen navigasi canggih, beberapa kru militer suruhan Menteri Pertahanan menyambut mereka dengan sikap hormat yang tinggi.
 
-Korea telah runtuh, dan Tokyo kini mulai bergetar ketakutan menanti kedatangan sang pewaris Yakuza Terkuat.
+Di sudut kabin, perlengkapan taktis yang dijanjikan sebelumnya telah tertata rapi di atas meja kompartemen logam yang bersih.
 
-***
+Ryu Jin dan rekan-rekannya segera mengenakan baju anti peluru hitam tebal yang disediakan oleh pihak militer Korea.
 
-## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
+Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka.
 
-**Pukul 20.00 WIB.**
+Pelindung ini dirancang khusus untuk memberikan keamanan maksimal tanpa mengurangi kelincahan gerak tubuh secara drastis saat bertempur.
 
-**Perairan Internasional, Dek Kapal Oasis-III.**
+Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya yang lembap.
 
-Kapal cepat Oasis-III membelah ombak besar samudra timur dengan kecepatan penuh.
+Min-ho juga memasang helm taktisnya dengan cepat, menyesuaikan posisi pelindung telinga dan mikrofon komunikasi nirkabel.
 
-Pendar cahaya rembulan malam menyinari buih-buih putih air laut yang pecah dihantam bodi logam kapal yang hitam kusam.
+Di sebelah matras kabin, terdapat tiga unit motor trail berwarna hitam doff yang diikat kuat menggunakan tali pengikat baja otomatis.
 
-Di dalam ruang kemudi yang kecil dan temaram, Ryu Jin berdiri tegak menatap kompas digital pada layar kemudi.
+Kendaraan roda dua ini dirancang khusus untuk melewati medan berat hutan bambu yang basah dan licin.
 
-Sementara di sudut dek kapal yang basah, Han Shin-woo sedang menyarungkan pisau karambit gandanya dengan gerakan tenang namun waspada.
+Ban bermotif cangkul tebal pada motor tersebut tampak siap mencengkeram tanah lumpur berbukit di perbatasan Thailand.
 
-Udara laut malam terasa sangat dingin menusuk kulit, menyebarkan aroma garam basah bercampur deru mesin kapal yang berputar tanpa henti.
+Shin-woo berjalan mendekat, menendang ban motor untuk memastikan tekanan udaranya cukup kuat.
 
-Tiba-tiba, telepon satelit yang terpasang di sabuk taktis Ryu Jin bergetar keras.
+Sementara itu, Min-ho memeriksa suspensi depan dan tangki bahan bakar cadangan untuk memastikan semuanya berada dalam kondisi siap tempur begitu menyentuh daratan.
 
-*BZZZT! BZZZT!*
+Di sudut lain kompartemen kabin, terdapat kotak kayu berlapis beludru hitam yang diletakkan secara terhormat.
 
-Jin menekan tombol terima, lalu mendekatkan gawai kecil itu ke telinganya.
+Kotak itu berisi dua puluh baut baja tebal dengan bobot seimbang, serta sebuah pedang katana Jepang berbilah baja dingin warisan zaman Heian.
 
-Seketika, suara derau angin kencang, letusan senjata mesin berat, dan kepanikan luar biasa terdengar bersahut-sahutan dari seberang sambungan.
+Katana tersebut merupakan pusaka berharga yang disiapkan khusus oleh jaringan informan atas perintah pribadi Menteri Pertahanan.
 
-*["Jin! Kau mendengarku?!"]* suara Dojin berteriak lantang melalui sambungan satelit.
+Ryu Jin melangkah mendekati kotak kayu tersebut dengan pandangan mata yang dingin dan terfokus.
 
-Napas Dojin terdengar sangat memburu di tengah gema dentuman artileri yang memekakkan telinga.
+Ia mengambil pedang katana itu, lalu menarik bilah bajunya perlahan dari sarung kayu hitam yang dipernis mengilat.
 
-*["Berita hancurnya Cerberus dan kematian Jenderal Kang di Seoul sudah viral secara global!"]*
+Kilatan baja perak memantul di mata birunya yang sedingin es di bawah pendar lampu indikator kabin jet.
 
-*["Jalur pasokan dana dan senjata ilegal mereka di Korea terputus total!"]*
+Permukaan logam bilah pedang menampakkan pola lipatan besi tradisional yang sangat indah namun mematikan.
 
-"Dojin, tenang," jawab Ryu Jin dengan nada suara yang sangat datar. "Ada apa di benteng?"
+Ia merasakan berat pedang itu di tangannya, menemukan keseimbangan yang sempurna untuk melakukan tebasan mematikan.
 
-*["Dua kartel besar, Kartel Black Ant dan Kartel Red Lizard, bersekutu!"]* teriak Dojin cemas.
+Jin melakukan satu gerakan tebasan bayangan yang lambat namun penuh tekanan udara, sebelum memasukkan kembali pedang ke dalam sarungnya dengan bunyi klik yang mantap.
 
-Di latar belakang suaranya, terdengar bunyi ledakan mortir yang menghantam tanah dengan keras (*DUUMM!*).
+"Katana yang luar biasa," gumam Han Shin-woo yang memperhatikan dari samping sambil menyarungkan pisau karambit gandanya di sabuk taktis.
 
-*["Mereka tahu kau, Shin-woo, dan Min-ho sedang berada di Korea."]*
+"Menteri Pertahanan benar-benar menyediakan kualitas terbaik untuk mendukung pembalasan kita."
 
-*["Mereka mengerahkan seluruh sisa pasukan Hydra dan Mamba untuk mengepung benteng ORCA dari segala arah!"]*
+"Dia berutang nyawa pada pimpinan Grey Hawk di masa lalu," balas Ryu Jin dengan nada suara yang rendah dan datar.
 
-*["Pengepungan sudah dimulai dengan kekuatan penuh. Mereka menembaki gerbang luar menggunakan meriam kecil!" ]*
+"Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan korup Jenderal Kang di tubuh militer."
 
-*["Kombatan terlatih kita sangat sedikit untuk menahan gempuran mereka, dan mantan warga desa mulai dilanda kepanikan!"]*
+Ryu Jin kemudian mengambil dua puluh baut baja tebal dari dalam kotak kayu tersebut.
 
-"Bertahanlah, Dojin. Kami sedang dalam perjalanan kembali," ujar Jin dingin.
+Satu per satu, ia menyelipkan baut-baut baja yang berujung runcing itu ke dalam kantong-kantong kecil khusus di rompi pelindungnya.
 
-*["Jalur laut terlalu lambat, Jin!"]* balas Dojin berteriak di antara deru angin ribut perbatasan.
-
-*["Kalian butuh waktu tiga hari untuk sampai ke sini menggunakan kapal penyelundup!"]*
-
-*["Dalam waktu dua puluh empat jam, gerbang baja benteng kita bisa runtuh dihantam meriam! Warga sipil di dalam tidak akan selamat jika pertahanan luar jebol!"]*
-
-Sambungan telepon satelit itu mendadak terputus karena gangguan frekuensi radio yang kacau di area lembah.
-
-***
-
-Ryu Jin menurunkan telepon satelitnya, lalu menatap hamparan laut gelap di luar jendela dek.
-
-Kalkulasi waktu dan jarak melintas cepat di dalam otaknya yang tajam.
-
-Dari posisi mereka saat ini di perairan internasional dekat semenanjung Korea, kapal Oasis-III tidak akan tiba tepat waktu.
-
-Mereka membutuhkan jalur udara darurat yang bisa menyeberangi perbatasan negara secara instan tanpa birokrasi.
-
-Tiba-tiba, ponsel taktis Min-ho memancarkan nada dering khusus pertanda panggilan masuk terenkripsi.
-
-"Jin, ada panggilan masuk dari jalur satelit militer yang tidak dikenal," lapor Min-ho.
-
-Ia menunjukkan layar ponselnya yang menampilkan indikator sinyal kuat yang memotong protokol keamanan mereka secara paksa.
-
-Jin mengambil ponsel tersebut, lalu menggeser tombol terima.
-
-"Bicara," ucap Jin singkat.
-
-*["Ryu Jin. Aku Jenderal Kang Min-seok dari komando pertahanan udara Korea,"]* sebuah suara berat dan berwibawa terdengar.
-
-*["Ketua Grey Hawk telah menghubungi saya secara rahasia mengenai situasi darurat yang menimpa markasmu di Thailand."]*
-
-*["Aku tahu kau dan timmu sedang terburu-buru kembali ke perbatasan utara."]*
-
-Ryu Jin menyipitkan mata birunya.
-
-Jenderal Kang Min-seok dikenal sebagai salah satu dari sedikit perwira tinggi militer Korea yang bersih dari korupsi.
-
-Ia adalah sosok yang menolak tunduk pada pengaruh kelompok Cerberus dan memiliki hubungan utang budi pribadi dengan pimpinan Grey Hawk di masa lalu.
-
-Sepuluh tahun lalu, saat operasi perdamaian PBB di Asia Tenggara, pimpinan Grey Hawk pernah menembus kepungan musuh untuk menyelamatkan tubuh Jenderal Kang yang terluka parah.
-
-*["Kejahatan Jenderal Kang Chul-min telah mencoreng nama baik seragam militer kami,"]* lanjut Jenderal Kang Min-seok tegas.
-
-*["Aku tidak peduli lagi dengan aturan birokrasi internasional."]*
-
-*["Aku ingin membantu kalian menyapu sisa-sisa sekutunya. Satu pesawat jet pengintai siluman militer telah bersiap di pangkalan udara rahasia pesisir timur."]*
-
-***
-
-"Bagaimana dengan radar pertahanan udara internasional?" tanya Choi Min-ho cemas dari balik kemudi kapal.
-
-*["Pesawat ini dilengkapi teknologi penyerap radar terbaru. Jet siluman ini tidak akan terdeteksi radar perbatasan sipil maupun militer,"]* jelas Jenderal Kang.
-
-*["Jet ini akan menerbangkan kalian langsung menuju wilayah perbatasan utara Thailand hanya dalam waktu empat jam."]*
-
-"Di mana kami mendarat?" sela Han Shin-woo yang kini telah berdiri di samping Jin.
-
-*["Kalian akan diterjunkan menggunakan parasut taktis malam hari di area hutan bambu luar Black Valley,"]* jawab Jenderal Kang.
-
-*["Rekan-rekan kami dari Grey Hawk telah bersiap di zona penerjunan."]*
-
-*["Mereka telah menyiapkan beberapa kendaraan motor trail untuk mobilitas cepat kalian, serta persenjataan militer lengkap untuk menyerbu kartel."]*
-
-Ryu Jin terdiam sejenak, menatap ke arah samudera kelam di hadapannya sebelum mengambil keputusan mutlak.
-
-"Kami menerima tumpangan jet siluman itu, Jenderal," ujar Ryu Jin tegas.
-
-"Tetapi, kami tidak membutuhkan persenjataan api militer."
-
-*["Kau menolak senjata api di tengah kepungan ratusan kombatan kartel bersenjata laras panjang?"]* tanya Jenderal Kang heran.
-
-"Siapkan saja motor trail untuk kami," balas Jin dengan sepasang mata biru esnya yang memancarkan aura membunuh yang dingin.
-
-"Dan di zona penerjunan nanti... siapkan dua puluh baut baja tebal dan sebuah pedang katana tradisional Jepang."
-
-*["...Permintaan yang aneh untuk pertempuran modern yang brutal. Tetapi baiklah, semuanya akan siap dalam empat jam. Koordinat pangkalan rahasia sudah dikirim ke ponsel Min-ho. Segera merapat."]*
-
-Sambungan satelit itu terputus.
-
-***
-
-Pukul 22.00 WIB.
-
-Kapal cepat Oasis-III merapat senyap di dermaga pangkalan udara militer rahasia pesisir timur.
-
-Di bawah guyuran gerimis tipis yang dingin, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di landasan pacu.
-
-Bodi pesawat itu nampak menyerap cahaya rembulan, memancarkan aura misterius yang mematikan.
-
-Trio Predator melangkah cepat menaiki tangga jet siluman tersebut.
-
-Di dalam kabin jet yang sempit, mereka mengenakan rompi pelindung hitam dan ransel parasut taktis dengan bantuan kru penerbang.
+Setiap baut diletakkan pada posisi yang mudah dijangkau oleh jentikan jemari tangannya dalam hitungan detik saat pertempuran jarak dekat terjadi.
 
 *BZZZZT!*
 
-Pintu jet tertutup rapat, dan mesin jet siluman berdentum halus tanpa suara bising saat lepas landas membelah langit malam Korea Selatan.
+Pintu jet tertutup rapat, memotong embusan angin pesisir yang dingin dari luar kabin pesawat.
 
-Di dalam kabin jet yang melesat cepat menembus awan badai, Ryu Jin duduk tenang memejamkan matanya.
+Mesin jet siluman berdentum halus tanpa suara bising yang mengganggu saat lepas landas membelah langit malam Korea Selatan.
 
-Tangan kirinya meraba koin naga bersilang pedang di saku mantelnya.
+Pesawat tersebut melesat menembus awan badai internasional tanpa terdeteksi radar penerbangan sipil maupun militer negara tetangga.
 
-Di otaknya, ia tidak sedang membayangkan baku tembak menggunakan senapan serbu otomatis yang bising.
+Hal ini berkat teknologi penyerap radar terbaru yang menyelimuti seluruh kulit karbon pesawat jet tersebut.
 
-Ia sedang menghitung sudut tebasan pedang dan lintasan saraf vital yang akan ia lumatkan menggunakan pedang samurai dan baut baja miliknya.
+Di tengah penerbangan yang berlangsung cepat menembus batas negara, telepon satelit Ryu Jin di sabuk taktisnya kembali bergetar keras.
 
-Jin teringat kata-kata Bos Takamori bahwa senjata api bisa kehabisan peluru atau macet di tengah lumpur hujan.
+*BZZZT! BZZZT!*
 
-Namun pedang baja adalah ekstensi langsung dari kehendak mutlak penggunanya yang tidak akan pernah berkhianat.
+Jin menekan tombol terima ke arah telinganya untuk menerima sambungan panggilan terenkripsi.
 
-Min-ho mengetuk layar ponselnya, memeriksa data radar cuaca terkini di perbatasan Thailand.
+Suara deru angin kencang, letusan senjata otomatis, dan kepanikan luar biasa terdengar bersahut-sahutan dari seberang telepon.
 
-"Jin, laporan cuaca menunjukkan badai petir besar sedang melanda hutan bambu utara," lapor Min-ho cemas.
+*["Jin! Kau mendengarku?! Pengepungan sudah dimulai dengan kekuatan penuh!"]* teriak Dojin di seberang telepon.
 
-"Ini menguntungkan karena radar musuh di bawah akan kacau, tetapi penerjunan kita akan sangat berbahaya karena hembusan angin kencang."
+Napas Dojin terdengar sangat memburu di tengah gema dentuman artileri yang memekakkan telinga di area luar benteng.
 
-Shin-woo menyeringai dingin sambil mengencangkan tali parasutnya.
+*["Kartel Black Ant dan Red Lizard menembaki tembok beton luar benteng menggunakan mortir!"]*
 
-"Angin kencang and badai petir... skenario pendaratan yang sempurna untuk menyambut para tikus kartel itu."
+*["Mantan warga desa mulai panik. Kami mencoba menahan gerbang baja depan, tetapi mereka membawa persenjataan berat!"]*
+
+"Bertahanlah, Dojin. Kami sudah berada di udara, terbang langsung menuju drop zone menggunakan jet siluman," jawab Jin tenang namun tajam.
+
+"Kami akan tiba di hutan bambu luar benteng dalam waktu dua jam dari sekarang."
+
+*["Baguslah! Kami akan menahan gerbang ini sampai titik darah terakhir! Kami tidak akan membiarkan mereka menembus pertahanan warga sipil!"]* sahut Dojin sebelum panggilan terputus akibat badai elektromagnetik di area lembah.
+
+***
+
+Ryu Jin mengatupkan telepon satelitnya kembali ke sabuk taktis dengan gerakan lambat yang tenang.
+
+Ia duduk tenang memejamkan matanya di kursi kabin jet yang terus melesat membelah langit malam.
+
+Tangan kirinya meraba koin naga bersilang pedang di saku mantelnya, merasakan setiap ukiran koin tersebut.
+
+Di otaknya, ia tidak sedang membayangkan baku tembak taktis menggunakan senapan serbu otomatis yang bising.
+
+Ia sedang menghitung sudut tebasan pedang katana dan lintasan saraf vital musuh yang akan ia lumatkan menggunakan pedang samurai dan baut baja miliknya.
+
+Jin teringat kata-kata Bos Takamori bahwa senjata api bisa kehabisan peluru atau macet di tengah lumpur hujan hutan belantara.
+
+Namun pedang baja adalah ekstensi langsung dari kehendak mutlak penggunanya yang tidak akan pernah berkhianat kepada pemiliknya.
+
+Min-ho mengetuk layar ponselnya yang terhubung ke satelit cuaca taktis militer.
+
+"Jin, laporan cuaca menunjukkan badai petir besar sedang melanda hutan bambu utara perbatasan," lapor Min-ho cemas.
+
+"Ini menguntungkan karena radar taktis musuh di bawah akan kacau akibat sambaran petir."
+
+"Namun penerjunan kita akan sangat berbahaya karena hembusan angin kencang yang bisa mengacaukan parasut kita."
+
+Han Shin-woo menyeringai dingin sambil mengencangkan tali parasut taktis di punggungnya.
+
+"Angin kencang and badai petir... skenario pendaratan yang sempurna untuk menyergap para tikus kartel itu dari langit."
+
+"Mereka tidak akan pernah menduga kita akan menerobos masuk dari atas langit yang dilanda badai."
 
 Jet siluman berguncang pelan saat mulai melakukan manuver menukik tajam menembus awan badai Thailand.
 
-Lampu hijau di atas pintu keluar kabin mulai berkedip cepat, menandai waktu penerjunan yang tinggal hitungan detik.
+Guncangan udara terasa semakin kuat menghantam bodi pesawat, membuat kabin bergetar hebat di bawah tekanan gravitasi.
 
-Pertempuran di Korea telah usai, dan kini taring naga Genryu-kai akan resmi dikibaskan memotong leher para kartel di tanah Lembah Hitam.
+Lampu hijau di atas pintu keluar kabin mulai berkedip cepat, diiringi alarm nyaring yang menandai waktu penerjunan tinggal hitungan detik.
+
+Kru militer segera membuka pintu ramp belakang jet siluman.
+
+Seketika, deru angin badai yang sangat kencang dan butiran air hujan yang dingin menerobos masuk ke dalam kabin.
+
+Di bawah mereka, terhampar kegelapan rimba hutan bambu utara Thailand yang diterangi sesekali oleh kilatan petir yang menyambar langit malam.
+
+Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai akan resmi dikibaskan memotong leher para kartel di tanah Lembah Hitam.
+
+Ryu Jin melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, bersiap menerjang kegelapan.
 
 ***
