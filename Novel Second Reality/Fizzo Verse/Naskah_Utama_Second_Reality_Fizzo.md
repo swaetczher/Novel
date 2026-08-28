@@ -8065,9 +8065,9 @@ Ryu Jin menggenggam erat pisau taktisnya, kepalanya dipenuhi kalkulasi taktis ru
 
 ## BAB 59: BADAI DARI UTARA
 
-**Pukul 04.30 WIB.**
+Pukul 04.30 WIB.
 
-**Markas ORCA Divisi Seora, Distrik Utara.**
+Markas ORCA Divisi Seora, Distrik Utara.
 
 Kabut tipis berwarna kelabu merayap lambat di atas permukaan aspal yang retak-retak.
 
@@ -8145,33 +8145,33 @@ Jin meraih gawai satelit tersebut, lalu menggeser tombol terima ke arah telingan
 
 "Bicara," ucap Jin singkat dan padat.
 
-*["Jin, aku Lee Tae-gyu,"]* suara Ketua Detektif Nasional terdengar tergesa-gesa namun sarat wibawa dari seberang telepon.
+"Jin, aku Lee Tae-gyu," suara Ketua Detektif Nasional terdengar tergesa-gesa namun sarat wibawa dari seberang telepon.
 
-*["Aku baru saja menerima informasi darurat dari sepupuku yang bertugas di komando perbatasan utara Thailand."]*
+"Aku baru saja menerima informasi darurat dari sepupuku yang bertugas di komando perbatasan utara Thailand."
 
-*["Dia mengabarkan bahwa aliansi dua kartel besar, Black Ant dan Red Lizard, telah bergerak mengepung benteng ORCA di Black Valley."]*
+"Dia mengabarkan bahwa aliansi dua kartel besar, Black Ant dan Red Lizard, telah bergerak mengepung benteng ORCA di Black Valley."
 
-*["Mereka tahu kau dan timmu sedang berada di Korea, dan Cerberus di Seoul telah runtuh."]*
+"Mereka tahu kau dan timmu sedang berada di Korea, dan Cerberus di Seoul telah runtuh."
 
-*["Mereka berniat meratakan benteng selagi kekuatanmu terbagi."]*
+"Mereka berniat meratakan benteng selagi kekuatanmu terbagi."
 
 Ryu Jin menyipitkan mata birunya yang sedingin es, menatap lurus ke arah dinding beton ruangan.
 
 "Berapa lama Dojin dan warga di sana bisa bertahan?" tanya Jin dingin.
 
-*["Sepupuku memperkirakan gerbang luar benteng bisa runtuh dalam waktu dua puluh empat jam jika terus dihantam mortir kartel,"]* balas Tae-gyu cemas.
+"Sepupuku memperkirakan gerbang luar benteng bisa runtuh dalam waktu dua puluh empat jam jika terus dihantam mortir kartel," balas Tae-gyu cemas.
 
-*["Jalur laut terlalu lambat, Jin! Kalian butuh waktu tiga hari jika menggunakan kapal penyelundup. Warga sipil di dalam benteng tidak akan selamat."]*
+"Jalur laut terlalu lambat, Jin! Kalian butuh waktu tiga hari jika menggunakan kapal penyelundup. Warga sipil di dalam benteng tidak akan selamat."
 
-*["Tetapi ada jalan keluar."]*
+"Tetapi ada jalan keluar."
 
-*["Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan."]*
+"Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan."
 
-*["Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang."]*
+"Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang."
 
-*["Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju Thailand malam ini."]*
+"Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju Thailand malam ini."
 
-*["Menteri juga telah menyiapkan perlengkapan taktis lengkap seperti baju anti peluru dan persenjataan militer di dalam jet tersebut,"]* tambah Tae-gyu.
+"Menteri juga telah menyiapkan perlengkapan taktis lengkap seperti baju anti peluru dan persenjataan militer di dalam jet tersebut," tambah Tae-gyu.
 
 Ryu Jin terdiam sejenak. Kalkulasi waktu dan jarak melintas cepat di otaknya.
 
@@ -8185,11 +8185,11 @@ Ryu Jin terdiam sejenak. Kalkulasi waktu dan jarak melintas cepat di otaknya.
 
 Tae-gyu di seberang telepon sempat tertegun heran mendengar permintaan aneh Ryu Jin, namun ia mengangguk paham.
 
-*["Baiklah, Menteri Pertahanan menyetujui permintaanmu. Jet siluman akan lepas landas pukul 22.00 malam nanti dari pangkalan udara militer rahasia di pesisir timur. Segera bergerak ke sana."]*
+"Baiklah, Menteri Pertahanan menyetujui permintaanmu. Jet siluman akan lepas landas pukul 22.00 malam nanti dari pangkalan udara militer rahasia di pesisir timur. Segera bergerak ke sana."
 
 Panggilan satelit terputus.
 
-***
+*
 
 Ryu Jin menutup telepon, lalu menatap Han Shin-woo yang duduk di sampingnya sambil membuka map dokumen hitam.
 
@@ -8225,11 +8225,11 @@ Korea telah runtuh, dan Tokyo mulai bergetar.
 
 Trio Predator bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
 
-***## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
+*## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
 
-**Pukul 22.00 WIB.**
+Pukul 22.00 WIB.
 
-**Pangkalan Udara Militer Rahasia, Pesisir Timur.**
+Pangkalan Udara Militer Rahasia, Pesisir Timur.
 
 Di bawah guyuran gerimis tipis yang dingin di pesisir timur Korea, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di landasan pacu yang sunyi.
 
@@ -8295,7 +8295,7 @@ Satu per satu, ia menyelipkan baut-baut baja yang berujung runcing itu ke dalam 
 
 Setiap baut diletakkan pada posisi yang mudah dijangkau oleh jentikan jemari tangannya dalam hitungan detik saat pertempuran jarak dekat terjadi.
 
-*BZZZZT!*
+BZZZZT!
 
 Pintu jet tertutup rapat, memotong embusan angin pesisir yang dingin dari luar kabin pesawat.
 
@@ -8307,27 +8307,27 @@ Hal ini berkat teknologi penyerap radar terbaru yang menyelimuti seluruh kulit k
 
 Di tengah penerbangan yang berlangsung cepat menembus batas negara, telepon satelit Ryu Jin di sabuk taktisnya kembali bergetar keras.
 
-*BZZZT! BZZZT!*
+BZZZT! BZZZT!
 
 Jin menekan tombol terima ke arah telinganya untuk menerima sambungan panggilan terenkripsi.
 
 Suara deru angin kencang, letusan senjata otomatis, dan kepanikan luar biasa terdengar bersahut-sahutan dari seberang telepon.
 
-*["Jin! Kau mendengarku?! Pengepungan sudah dimulai dengan kekuatan penuh!"]* teriak Dojin di seberang telepon.
+"Jin! Kau mendengarku?! Pengepungan sudah dimulai dengan kekuatan penuh!" teriak Dojin di seberang telepon.
 
 Napas Dojin terdengar sangat memburu di tengah gema dentuman artileri yang memekakkan telinga di area luar benteng.
 
-*["Kartel Black Ant dan Red Lizard menembaki tembok beton luar benteng menggunakan mortir!"]*
+"Kartel Black Ant dan Red Lizard menembaki tembok beton luar benteng menggunakan mortir!"
 
-*["Mantan warga desa mulai panik. Kami mencoba menahan gerbang baja depan, tetapi mereka membawa persenjataan berat!"]*
+"Mantan warga desa mulai panik. Kami mencoba menahan gerbang baja depan, tetapi mereka membawa persenjataan berat!"
 
 "Bertahanlah, Dojin. Kami sudah berada di udara, terbang langsung menuju drop zone menggunakan jet siluman," jawab Jin tenang namun tajam.
 
 "Kami akan tiba di hutan bambu luar benteng dalam waktu dua jam dari sekarang."
 
-*["Baguslah! Kami akan menahan gerbang ini sampai titik darah terakhir! Kami tidak akan membiarkan mereka menembus pertahanan warga sipil!"]* sahut Dojin sebelum panggilan terputus akibat badai elektromagnetik di area lembah.
+"Baguslah! Kami akan menahan gerbang ini sampai titik darah terakhir! Kami tidak akan membiarkan mereka menembus pertahanan warga sipil!" sahut Dojin sebelum panggilan terputus akibat badai elektromagnetik di area lembah.
 
-***
+*
 
 Ryu Jin mengatupkan telepon satelitnya kembali ke sabuk taktis dengan gerakan lambat yang tenang.
 
@@ -8373,4 +8373,4 @@ Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai aka
 
 Ryu Jin melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, bersiap menerjang kegelapan.
 
-***
+*
