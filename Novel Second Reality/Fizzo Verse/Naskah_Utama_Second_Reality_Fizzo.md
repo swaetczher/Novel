@@ -8225,7 +8225,9 @@ Korea telah runtuh, dan Tokyo mulai bergetar.
 
 Trio Predator bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
 
-*## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
+*
+
+## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
 
 Pukul 22.00 WIB.
 
