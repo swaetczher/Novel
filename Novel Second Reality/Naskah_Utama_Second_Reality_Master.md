@@ -5792,7 +5792,7 @@ Dua jam setelah lepas landas, ketika pesawat melesat di ketinggian tiga puluh ri
 
 Jin menekan tombol terima dan mendekatkan gawai kecil itu ke telinganya. Seketika itu juga, derau angin kencang, letusan senjata mesin beruntun, dan suara kepanikan luar biasa terdengar bersahut-sahutan dari seberang sambungan satelit.
 
-*["Jin! Kau mendengarku?! Pengepungan sudah dimulai!"]* teriak Dojin dengan suara yang parau dan napas memburu di tengah gema dentuman artileri yang memekakkan telinga. *["Dua kartel besar, Kartel Black Ant dan Kartel Red Lizard, bersekutu! Mereka membawa sisa-sisa tentara bayaran Hydra dan Mamba untuk menyerbu benteng kita dari segala arah!"]*
+*["Jin! Kau mendengarku?! Pengepungan sudah dimulai!"]* teriak Dojin dengan suara yang parau dan napas memburu di tengah gema dentuman artileri yang memekakkan telinga. *["Dua kartel besar, Kartel Black Ant dan Kartel Red Lizard, bersekutu! Mereka membawa sisa-sisa kombatan Kartel Mamba untuk menyerbu benteng kita dari segala arah!"]*
 
 *["Mereka menembaki tembok beton luar benteng menggunakan meriam kecil dan mortir! Gerbang baja utama kami terus dihantam ledakan berat. Kami kekurangan kombatan untuk menahan gempuran mereka, dan para mantan warga desa mulai dilanda kepanikan hebat!"]* sambung Dojin cemas.
 

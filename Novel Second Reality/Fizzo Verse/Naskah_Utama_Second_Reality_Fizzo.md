@@ -8133,7 +8133,7 @@ Mendengar nama itu disebut, Ryu Jin langsung menyipitkan mata birunya dengan san
 
 Krao adalah pimpinan tertinggi Kartel Black Ant yang menguasai wilayah perbatasan pegunungan utara Thailand.
 
-"Surel balasan dari mereka mengonfirmasi bahwa mereka telah bersekutu dengan sisa-sisa tentara bayaran Hydra dan Mamba," sambung Min-ho.
+"Surel balasan dari mereka mengonfirmasi bahwa mereka telah bersekutu dengan sisa-sisa kombatan Kartel Mamba," sambung Min-ho.
 
 "Mereka merencanakan penyerbuan gabungan berskala besar ke benteng ORCA dalam waktu dekat."
 
