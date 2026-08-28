@@ -8255,7 +8255,7 @@ Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung d
 
 Min-ho juga memasang helm taktisnya dengan cepat, menyesuaikan posisi pelindung telinga dan mikrofon komunikasi nirkabel.
 
-Menteri Pertahanan mengonfirmasi bahwa rekan-rekan Grey Hawk di darat telah bersiap di zona penerjunan hutan bambu.
+Menteri Pertahanan mengonfirmasi bahwa kontak militer perbatasan di darat telah bersiap di zona penerjunan hutan bambu.
 
 Mereka telah menyembunyikan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di bawah terpal penyamar.
 
@@ -8275,7 +8275,7 @@ Jin melakukan satu gerakan tebasan bayangan yang lambat namun penuh tekanan udar
 
 "Sejak menyadari musuh utama kita adalah sindikat Yakuza Kurokawa di Tokyo, aku mulai melatih diri menggunakan senjata tradisional Jepang ini," sambung Shin-woo serius. "Kunai dan shuriken ini jauh lebih efisien untuk pertarungan sunyi, menggantikan karambit dan belati lempar lamaku sebagai persiapan taktis sebelum kita menyerbu Jepang."
 
-"Dia berutang nyawa pada pimpinan Grey Hawk di masa lalu," balas Ryu Jin dengan nada suara yang rendah dan datar.
+"Beliau mendukung operasi ini karena ingin menyapu bersih sisa-sisa sekutu Jenderal Kang," balas Ryu Jin dengan nada suara yang rendah dan datar.
 
 "Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan korup Jenderal Kang di tubuh militer."
 
