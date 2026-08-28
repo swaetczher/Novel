@@ -75,6 +75,8 @@
 
 ## 🏛️ KEPOLISIAN & VARIABEL HUKUM (POLISI JUJUR VS KORUP)
 * **Detektif Lee Tae-gyu:** Polisi muda yang jujur dan teguh berintegritas tinggi di Distrik Barat. Dipromosikan menjadi **Detektif**. Di Bab 28, ia disergap di TKP karaoke, dibawa ke Dermaga Bayangan untuk dieksekusi, lalu diselamatkan oleh Tim 2 (Shin-woo, Min-ho, & Hydra). Di Bab 31, Tae-gyu memegang pistol mengawasi area pertempuran Hydra vs Kwak Sang-cheol.
+  * **Status Sekarang:** Detektif Tae-gyu kini berada di bawah naungan **ORCA**, di mana ia dan tim kepolisiannya yang bersih secara resmi bergabung dalam **ORCA Group**.
+  * **Variabel Relasi:** Memiliki seorang **sepupu** yang bertugas di komando perbatasan utara Thailand, yang bertindak sebagai informan kunci saat pengepungan benteng Black Valley terjadi di Bab 59.
 * **Kepala Kepolisian Distrik Barat (Inspektur Utama Park Min-hyuk):** Atasan polisi korup yang dideretkan dengan Barata dan Viper. Di Bab 33, ia dilumpuhkan secara permanen oleh Dojin (rahang hancur dan dengkul tertancap pisau lipat taktis).
 
 ---

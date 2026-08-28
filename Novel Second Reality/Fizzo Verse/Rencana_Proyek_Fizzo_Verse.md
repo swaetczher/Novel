@@ -39,6 +39,8 @@
 - Setelah lompatan waktu satu tahun, usia mereka menjadi **20, 20, 20, dan 23 tahun**.
 - Tawan adalah putra Tetua Desa Phra Khann. Pemimpin Kartel Black Ant bernama **Krao**.
 - Kwon Hyeok-tae tidak berada di Zenith Tower; ia baru ditemukan dan dieksekusi di bunker Galangan Baja Daechang.
+- Detektif Lee Tae-gyu kini berada di bawah naungan **ORCA**, di mana ia dan tim kepolisiannya yang bersih secara resmi bergabung dalam **ORCA Group**.
+- Sepupu Detektif Tae-gyu bertugas di komando perbatasan utara Thailand, bertindak sebagai informan kunci saat pengepungan benteng Black Valley terjadi di Bab 59.
 - Jika naskah sumber lama bertentangan dengan bagian ini, gunakan kanon ini.
 
 ### 1. Linimasa Flashback
