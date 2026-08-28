@@ -5702,382 +5702,189 @@ Ryu Jin menggenggam erat pisau taktisnya, kepalanya dipenuhi kalkulasi taktis ru
 ## BAB 59: BADAI DARI UTARA
 
 Pukul 04.30 Pagi.
-
 Markas ORCA Divisi Seora, Distrik Utara.
 
-Udara pagi yang dingin bertiup kencang menyapu area dermaga tua Distrik Utara.
+Udara pagi yang dingin bertiup kencang menyapu area dermaga tua Distrik Utara. Sisa-sisa air hujan semalam masih menggenang di atas aspal retak, memantulkan pendar abu-abu dari langit fajar yang berkabut tebal. Di dalam hanggar galangan kapal lama yang telah disulap menjadi markas rahasia ORCA, Ryu Jin, Shin-woo, dan Min-ho duduk mengelilingi meja kayu panjang di ruang komando utama. Tubuh mereka masih basah oleh air hujan dan bercak lumpur hitam pasca-pelarian dari runtuhnya bunker militer.
 
-Sisa-sisa air hujan semalam masih menggenang di atas aspal retak, memantulkan pendar abu-abu dari langit fajar yang berkabut tebal.
+Lee Jae-hyeok menyodorkan tiga cangkir kopi hitam panas yang uapnya mengepul wangi. Di sebelahnya, Park Jin-woo berdiri tegap dengan sikap siaga penuh, menjaga pintu masuk baja ruangan.
 
-Di dalam hanggar galangan kapal lama yang telah disulap menjadi markas rahasia ORCA, Ryu Jin, Shin-woo, dan Min-ho duduk mengelilingi meja kayu panjang di ruang komando utama.
+"Kalian berhasil kembali dalam keadaan utuh," ujar Jae-hyeok sambil menghela napas lega, menyeka keringat dingin di pelipisnya. "Kami mendengar gemuruh ledakan dari arah bukit perbatasan. Seluruh stasiun berita lokal mulai ramai menyiarkan laporan tentang gempa tektonik lokal yang meruntuhkan kawasan gudang militer lama."
 
-Tubuh mereka masih basah oleh air hujan dan bercak lumpur hitam pasca-pelarian dari runtuhnya bunker militer.
-
-Lee Jae-hyeok menyodorkan tiga cangkir kopi hitam panas yang uapnya mengepul wangi.
-
-Di sebelahnya, Park Jin-woo berdiri tegap dengan sikap siaga penuh, menjaga pintu masuk baja ruangan.
-
-"Kalian berhasil kembali dalam keadaan utuh," ujar Jae-hyeok sambil menghela napas lega, menyeka keringat dingin di pelipisnya.
-
-"Kami mendengar gemuruh ledakan dari arah bukit perbatasan. Seluruh stasiun berita lokal mulai ramai menyiarkan laporan tentang gempa tektonik lokal yang meruntuhkan kawasan gudang militer lama."
-
-Ryu Jin menyesap kopi hitamnya secara perlahan. Kehangatan cairan pahit itu mulai mengalir menembus dadanya yang terasa beku.
-
-Pipinya yang tergores goresan luka peluru telah dibalut perban kain putih bersih.
-
-Sepasang mata biru esnya beralih menatap Choi Min-ho yang duduk di ujung meja dengan tatapan fokus penuh.
+Ryu Jin menyesap kopi hitamnya secara perlahan. Kehangatan cairan pahit itu mulai mengalir menembus dadanya yang terasa beku. Pipinya yang tergores goresan luka peluru telah dibalut perban kain putih bersih. Sepasang mata biru esnya beralih menatap Choi Min-ho yang duduk di ujung meja dengan tatapan fokus penuh.
 
 "Min-ho, bagaimana dengan data yang kau salin?" tanya Jin dingin.
 
-Choi Min-ho meletakkan ponsel taktisnya di atas meja, menampilkan direktori berkas rahasia Jenderal Kang Chul-min yang berhasil disalin sebelum bunker diledakkan.
+Choi Min-ho meletakkan ponsel taktisnya di atas meja, menampilkan direktori berkas rahasia Jenderal Kang Chul-min yang berhasil disalin sebelum bunker diledakkan. Layar monitor besar di dinding memproyeksikan data log pengiriman surel terenkripsi.
 
-Layar monitor besar di dinding memproyeksikan data log pengiriman surel terenkripsi.
+"Jenderal Kang Chul-min telah membocorkan seluruh titik lemah sistem pertahanan benteng kita di Black Valley kepada Krao, pimpinan tertinggi Kartel Black Ant," ungkap Min-ho serius. "Surel itu dikirim tiga hari lalu. Mereka mengonfirmasi rencana penyerbuan gabungan berskala besar dalam waktu dekat."
 
-"Jenderal Kang Chul-min telah membocorkan seluruh titik lemah sistem pertahanan benteng kita di Black Valley kepada Krao, pimpinan tertinggi Kartel Black Ant," ungkap Min-ho serius.
+Tiba-tiba, telepon satelit di meja berdering nyaring. Jalur panggilan darurat terenkripsi dari Seoul menyala merah. Ryu Jin menggeser tombol terima.
 
-"Surel itu dikirim tiga hari lalu. Mereka mengonfirmasi rencana penyerbuan gabungan berskala besar dalam waktu dekat."
-
-Tiba-tiba, telepon satelit di meja berdering nyaring. Jalur panggilan darurat terenkripsi dari Seoul menyala merah.
-
-Ryu Jin menggeser tombol terima.
-
-"Jin, aku Lee Tae-gyu," suara Ketua Detektif Nasional terdengar tergesa-gesa namun sarat wibawa dari seberang telepon.
-
-"Aku baru saja menerima laporan intelijen rahasia dari sepupuku yang bertugas di komando perbatasan utara Thailand."
-
-"Dia mengabarkan bahwa aliansi dua kartel besar, Black Ant dan Red Lizard, telah bergerak mengepung benteng ORCA di Black Valley."
+"Jin, aku Lee Tae-gyu," suara Ketua Detektif Nasional terdengar tergesa-gesa namun sarat wibawa dari seberang telepon. "Aku baru saja menerima laporan intelijen rahasia dari sepupuku yang bertugas di komando perbatasan utara Thailand. Dia mengabarkan bahwa aliansi dua kartel besar, Black Ant dan Red Lizard, telah bergerak mengepung benteng ORCA di Black Valley."
 
 "Mereka mengetahui bahwa kau dan timmu sedang berada di Korea, dan Cerberus di Seoul telah runtuh. Mereka berniat meratakan benteng selagi kekuatanmu terbagi," sambung Tae-gyu serius.
 
 Ryu Jin menyipitkan matanya. "Berapa lama mereka bisa bertahan?"
 
-"Sepupuku memperkirakan gerbang luar benteng bisa runtuh dalam waktu dua puluh empat jam jika dihantam mortir kartel," balas Tae-gyu cemas.
+"Sepupuku memperkirakan gerbang luar benteng bisa runtuh dalam waktu dua puluh empat jam jika dihantam mortir kartel," balas Tae-gyu cemas. "Kalian butuh waktu tiga hari jika menggunakan kapal laut cepat penyelundup. Warga sipil di dalam benteng tidak akan selamat."
 
-"Kalian butuh waktu tiga hari jika menggunakan kapal laut cepat penyelundup. Warga sipil di dalam benteng tidak akan selamat."
-
-"Tetapi ada jalan keluar," lanjut Tae-gyu.
-
-"Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan. Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang."
-
-"Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju perbatasan Thailand malam ini."
+"Tetapi ada jalan keluar," lanjut Tae-gyu. "Kebetulan saat ini aku sedang melakukan pertemuan koordinasi khusus dengan Menteri Pertahanan. Beliau adalah perwira tinggi yang bersih dan sangat mendukung operasi pembersihan sisa-sisa sekutu korup Jenderal Kang. Mendengar situasi darurat ini, Menteri Pertahanan menawarkan fasilitas satu unit jet pengintai siluman militer untuk menerbangkan kalian langsung menuju perbatasan Thailand malam ini."
 
 "Menteri juga telah menyiapkan perlengkapan taktis lengkap seperti baju anti peluru dan persenjataan militer di dalam jet tersebut," tambah Tae-gyu.
 
 Ryu Jin terdiam sejenak. Kalkulasi waktu dan jarak melintas cepat di otaknya.
 
-"Kami menerima fasilitas jet siluman itu, Tae-gyu," ujar Jin tegas.
+"Kami menerima fasilitas jet siluman itu, Tae-gyu," ujar Jin tegas. "Tetapi katakan pada Menteri, kami menolak persenjataan api militer. Siapkan saja motor trail untuk mobilitas di drop zone nanti, serta dua puluh baut baja tebal dan sebuah pedang katana tradisional Jepang."
 
-"Tetapi katakan pada Menteri, kami menolak persenjataan api militer."
-
-"Siapkan saja motor trail untuk mobilitas di drop zone nanti, serta dua puluh baut baja tebal dan sebuah pedang katana tradisional Jepang."
-
-Tae-gyu di seberang telepon sempat tertegun heran, namun ia mengangguk paham.
-
-"Baiklah, Menteri Pertahanan menyetujui permintaanmu. Jet siluman akan lepas landas pukul 22.00 malam nanti dari pangkalan udara militer rahasia di pesisir timur. Segera bergerak ke sana."
+Tae-gyu di seberang telepon sempat tertegun heran, namun ia mengangguk paham. "Baiklah, Menteri Pertahanan menyetujui permintaanmu. Jet siluman akan lepas landas pukul 22.00 malam nanti dari pangkalan udara militer rahasia di pesisir timur. Segera bergerak ke sana."
 
 Panggilan satelit terputus.
 
 *
 
-Ryu Jin menutup telepon, lalu menatap Han Shin-woo yang duduk di sampingnya sambil membuka map dokumen hitam berisi arsip kematian ayahnya, Hakim Han Sung-jae, yang ditemukan di bunker Jenderal Kang.
+Ryu Jin menutup telepon, lalu menatap Han Shin-woo yang duduk di sampingnya sambil membuka map dokumen hitam berisi arsip kematian ayahnya, Hakim Han Sung-jae, yang ditemukan di bunker Jenderal Kang. Dokumen tersebut memuat disposisi penutupan kasus yang ditandatangani langsung oleh Jenderal Kang atas perintah dana suap dari Sindikat Kurokawa di Tokyo.
 
-Dokumen tersebut memuat disposisi penutupan kasus yang ditandatangani langsung oleh Jenderal Kang atas perintah dana suap dari Sindikat Kurokawa di Tokyo.
+"Jadi ayahku dilenyapkan karena menyelidiki penyelundupan senjata militer ilegal milik Kurokawa yang masuk ke pelabuhan," desis Shin-woo dengan mata memerah menahan dendam. "Dalang pembunuh ayahku... adalah musuh yang sama dengan pembantai keluargamu di Kyoto, Jin."
 
-"Jadi ayahku dilenyapkan karena menyelidiki penyelundupan senjata militer ilegal milik Kurokawa yang masuk ke pelabuhan," desis Shin-woo dengan mata memerah menahan dendam.
-
-"Dalang pembunuh ayahku... adalah musuh yang sama dengan pembantai keluargamu di Kyoto, Jin."
-
-Ryu Jin mencengkeram bahu Shin-woo dengan kuat.
-
-"Dendam kita tertuju pada titik yang sama di Tokyo, Shin-woo. Tetapi kita harus mengamankan benteng Black Valley terlebih dahulu sebelum menyeberang ke Jepang. Bersiaplah."
+Ryu Jin mencengkeram bahu Shin-woo dengan kuat. "Dendam kita tertuju pada titik yang sama di Tokyo, Shin-woo. Tetapi kita harus mengamankan benteng Black Valley terlebih dahulu sebelum menyeberang ke Jepang. Bersiaplah."
 
 Pukul 09.00 Pagi.
+Sebelum keberangkatan mereka, Min-ho meretas portal berita nasional dan memublikasikan seluruh berkas kejahatan Jenderal Kang secara anonim, didukung kampanye iklan media sosial berbayar selama satu bulan menggunakan sisa dana Cerberus. Kegemparan besar meletus secara nasional. Tae-gyu memimpin penangkapan puluhan pejabat korup di Seoul. 
 
-Sebelum keberangkatan mereka, Min-ho meretas portal berita nasional dan memublikasikan seluruh berkas kejahatan Jenderal Kang secara anonim.
+Berita tersebut melompat hingga ke Tokyo, mengungkap suap pejabat kementerian pertahanan Jepang oleh Sindikat Kurokawa. Di Tokyo, pimpinan Kurokawa panik dan mengancam pejabat Jepang yang terlibat agar segera membungkam media dalam waktu 24 jam atau mereka akan dibungkam selamanya.
 
-Data itu didukung kampanye iklan media sosial berbayar selama satu bulan menggunakan sisa dana Cerberus.
-
-Kegemparan besar meletus secara nasional. Tae-gyu memimpin penangkapan puluhan pejabat korup di Seoul.
-
-Berita tersebut melompat hingga ke Tokyo, mengungkap suap pejabat kementerian pertahanan Jepang oleh Sindikat Kurokawa.
-
-Di Tokyo, pimpinan Kurokawa panik dan mengancam pejabat Jepang yang terlibat agar segera membungkam media dalam waktu 24 jam atau mereka akan dibungkam selamanya.
-
-Di hanggar Seora, Ryu Jin menatap layar berita.
-
-Korea telah runtuh, dan Tokyo mulai bergetar.
-
-Ryu Jin, Shin-woo, dan Min-ho bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
+Di hanggar Seora, Ryu Jin menatap layar berita. Korea telah runtuh, dan Tokyo mulai bergetar. Ryu Jin, Shin-woo, dan Min-ho bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
 
 ## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
 
 Pukul 22.00 Malam.
-
 Pangkalan Udara Militer Rahasia, Pesisir Timur.
 
-Di bawah guyuran gerimis tipis yang dingin di pesisir timur Korea, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di landasan pacu yang sunyi.
+Di bawah guyuran gerimis tipis yang dingin di pesisir timur Korea, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di landasan pacu yang sunyi. Kulit karbon pesawat itu nampak menyerap cahaya rembulan malam, memancarkan aura misterius yang mematikan. Angin pesisir yang kencang membawa aroma garam dan kelembapan laut yang pekat, menusuk tulang di tengah kegelapan malam.
 
-Kulit karbon pesawat itu nampak menyerap cahaya rembulan malam, memancarkan aura misterius yang mematikan.
+Ryu Jin, Shin-woo, dan Min-ho melangkah cepat menaiki tangga jet siluman tersebut. Di dalam kabin jet yang sempit namun dipenuhi barisan instrumen navigasi canggih, kru militer kiriman Menteri Pertahanan menyambut mereka dengan sikap hormat yang tinggi. Di sudut kabin, barisan perlengkapan taktis yang dijanjikan telah tertata dengan rapi di atas meja kompartemen logam.
 
-Angin pesisir yang kencang membawa aroma garam dan kelembapan laut yang pekat, menusuk tulang di tengah kegelapan malam.
+Ryu Jin, Han Shin-woo, dan Choi Min-ho segera mengenakan baju anti peluru hitam tebal yang disediakan. Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka, memberikan perlindungan maksimal tanpa mengurangi mobilitas gerak secara drastis. Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya.
 
-Ryu Jin, Shin-woo, dan Min-ho melangkah cepat menaiki tangga jet siluman tersebut.
+Menteri Pertahanan mengonfirmasi bahwa jaringan rekan-rekan Grey Hawk telah mempersiapkan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di titik pendaratan hutan bambu, tersembunyi dengan rapi di bawah terpal penyamar. Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
 
-Di dalam kabin jet yang sempit namun dipenuhi barisan instrumen navigasi canggih, kru militer kiriman Menteri Pertahanan menyambut mereka dengan sikap hormat yang tinggi.
+"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya. Sejak menyadari musuh utama mereka adalah sindikat Yakuza Kurokawa di Tokyo, Shin-woo mulai melatih diri menggunakan senjata tradisional Jepang tersebut, menggantikan pisau karambit dan belati lempar lamanya untuk persiapan taktis menyeberang ke Jepang.
 
-Di sudut kabin, barisan perlengkapan taktis yang dijanjikan telah tertata dengan rapi di atas meja kompartemen logam.
+"Dia berutang nyawa pada Grey Hawk," balas Ryu Jin dengan suara rendah dan datar. "Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan Jenderal Kang di tubuh militer Korea. Ini adalah perang pribadinya juga."
 
-Ryu Jin, Han Shin-woo, dan Choi Min-ho segera mengenakan baju anti peluru hitam tebal yang disediakan.
-
-Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka, memberikan perlindungan maksimal tanpa mengurangi mobilitas gerak secara drastis.
-
-Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya.
-
-Menteri Pertahanan mengonfirmasi bahwa jaringan rekan-rekan Grey Hawk telah mempersiapkan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di titik pendaratan hutan bambu, tersembunyi dengan rapi di bawah terpal penyamar.
-
-Ryu Jin meraba koin naga bersilang pedang di saku mantelnya.
-
-Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
-
-"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya.
-
-Sejak menyadari musuh utama mereka adalah sindikat Yakuza Kurokawa di Tokyo, Shin-woo mulai melatih diri menggunakan senjata tradisional Jepang tersebut, menggantikan pisau karambit dan belati lempar lamanya untuk persiapan taktis menyeberang ke Jepang.
-
-"Dia berutang nyawa pada Grey Hawk," balas Ryu Jin dengan suara rendah dan datar.
-
-"Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan Jenderal Kang di tubuh militer Korea. Ini adalah perang pribadinya juga."
-
-Ryu Jin membayangkan pertempuran jarak dekat yang akan terjadi di bawah sana.
-
-Dua puluh baut baja tebal yang telah disiapkan di lokasi pendaratan akan menjadi proyektil maut di tangan jentikan jemarinya.
+Ryu Jin membayangkan pertempuran jarak dekat yang akan terjadi di bawah sana. Dua puluh baut baja tebal yang telah disiapkan di lokasi pendaratan akan menjadi proyektil maut di tangan jentikan jemarinya.
 
 BZZZZT!
+Pintu jet tertutup rapat, memotong embusan angin pesisir yang dingin dari luar. Suara desing mesin jet siluman mulai terdengar berdentum halus, hampir tidak menghasilkan getaran bising yang berarti di dalam kabin. Pesawat tersebut perlahan bergerak menyusuri landasan pacu yang gelap sebelum melesat cepat ke langit malam Korea Selatan, membelah awan hitam menuju perbatasan Thailand.
 
-Pintu jet tertutup rapat, memotong embusan angin pesisir yang dingin dari luar.
-
-Suara desing mesin jet siluman mulai terdengar berdentum halus, hampir tidak menghasilkan getaran bising yang berarti di dalam kabin.
-
-Pesawat tersebut perlahan bergerak menyusuri landasan pacu yang gelap sebelum melesat cepat ke langit malam Korea Selatan, membelah awan hitam menuju perbatasan Thailand.
-
-Teknologi penyerap radar terbaru yang melumuri seluruh kulit karbon pesawat membuat jet siluman ini tidak akan terdeteksi oleh radar penerbangan sipil internasional maupun radar pertahanan udara militer perbatasan Thailand.
-
-Mereka terbang di dalam kegelapan mutlak, bagaikan hantu yang membelah samudera udara.
+Teknologi penyerap radar terbaru yang melumuri seluruh kulit karbon pesawat membuat jet siluman ini tidak akan terdeteksi oleh radar penerbangan sipil internasional maupun radar pertahanan udara militer perbatasan Thailand. Mereka terbang di dalam kegelapan mutlak, bagaikan hantu yang membelah samudera udara.
 
 Dua jam setelah lepas landas, ketika pesawat melesat di ketinggian tiga puluh ribu kaki di atas perairan internasional, telepon satelit di sabuk taktis Ryu Jin bergetar keras.
 
 BZZZT! BZZZT!
+Jin menekan tombol terima dan mendekatkan gawai kecil itu ke telinganya. Seketika itu juga, derau angin kencang, letusan senjata mesin beruntun, dan suara kepanikan luar biasa terdengar bersahut-sahutan dari seberang sambungan satelit.
 
-Jin menekan tombol terima dan mendekatkan gawai kecil itu ke telinganya.
-
-Seketika itu juga, derau angin kencang, letusan senjata mesin beruntun, dan suara kepanikan luar biasa terdengar bersahut-sahutan dari seberang sambungan satelit.
-
-"Jin! Kau mendengarku?! Pengepungan sudah dimulai!" teriak Dojin dengan suara yang parau dan napas memburu di tengah gema dentuman artileri yang memekakkan telinga.
-
-"Dua kartel besar, Kartel Black Ant dan Kartel Red Lizard, bersekutu! Mereka membawa sisa-sisa kombatan Kartel Mamba untuk menyerbu benteng kita dari segala arah!"
+"Jin! Kau mendengarku?! Pengepungan sudah dimulai!" teriak Dojin dengan suara yang parau dan napas memburu di tengah gema dentuman artileri yang memekakkan telinga. "Dua kartel besar, Kartel Black Ant dan Kartel Red Lizard, bersekutu! Mereka membawa sisa-sisa kombatan Kartel Mamba untuk menyerbu benteng kita dari segala arah!"
 
 "Mereka menembaki tembok beton luar benteng menggunakan meriam kecil dan mortir! Gerbang baja utama kami terus dihantam ledakan berat. Kami kekurangan kombatan untuk menahan gempuran mereka, dan para mantan warga desa mulai dilanda kepanikan hebat!" sambung Dojin cemas.
 
-"Bertahanlah, Dojin. Kami sudah berada di udara, terbang langsung menuju drop zone menggunakan jet siluman militer," jawab Ryu Jin dengan nada suara yang sangat tenang namun tajam, seolah tidak terpengaruh oleh kekacauan di seberang telepon.
-
-"Kami akan mendarat di hutan bambu luar benteng dalam waktu dua jam."
+"Bertahanlah, Dojin. Kami sudah berada di udara, terbang langsung menuju drop zone menggunakan jet siluman militer," jawab Ryu Jin dengan nada suara yang sangat tenang namun tajam, seolah tidak terpengaruh oleh kekacauan di seberang telepon. "Kami akan mendarat di hutan bambu luar benteng dalam waktu dua jam."
 
 "Baguslah! Aku akan menahan gerbang baja depan ini sampai titik darah terakhir! Kami tidak akan membiarkan para tikus kartel itu menembus pertahanan warga sipil!" balas Dojin tegas sebelum sambungan telepon mendadak terputus akibat badai elektromagnetik yang mengacaukan frekuensi radio di area lembah.
 
 *
 
-Ryu Jin mengatupkan telepon satelitnya kembali.
+Ryu Jin mengatupkan telepon satelitnya kembali. Pikirannya tetap tenang, terfokus sepenuhnya pada kalkulasi taktis pertempuran gerilya yang akan dihadapi. Ia memejamkan matanya, menikmati kegelapan kabin jet yang terus melaju kencang menembus awan badai. Tangan kirinya menggenggam koin naga bersilang pedang di saku mantelnya, merasakan setiap detail ukiran logam koin tersebut.
 
-Pikirannya tetap tenang, terfokus sepenuhnya pada kalkulasi taktis pertempuran gerilya yang akan dihadapi.
+Di otaknya, ia tidak sedang merancang baku tembak taktis menggunakan senapan serbu otomatis yang bising. Ia sedang menghitung sudut tebasan pedang katana dan lintasan saraf vital musuh yang akan ia lumatkan menggunakan baut baja miliknya. Jin teringat wejangan Bos Takamori bahwa senjata api bisa kehabisan peluru atau macet di tengah lumpur hujan hutan belantara, namun bilah pedang baja adalah ekstensi langsung dari kehendak mutlak penggunanya yang tidak akan pernah mengkhianati pemiliknya.
 
-Ia memejamkan matanya, menikmati kegelapan kabin jet yang terus melaju kencang menembus awan badai.
-
-Tangan kirinya menggenggam koin naga bersilang pedang di saku mantelnya, merasakan setiap detail ukiran logam koin tersebut.
-
-Di otaknya, ia tidak sedang merancang baku tembak taktis menggunakan senapan serbu otomatis yang bising.
-
-Ia sedang menghitung sudut tebasan pedang katana dan lintasan saraf vital musuh yang akan ia lumatkan menggunakan baut baja miliknya.
-
-Jin teringat wejangan Bos Takamori bahwa senjata api bisa kehabisan peluru atau macet di tengah lumpur hujan hutan belantara, namun bilah pedang baja adalah ekstensi langsung dari kehendak mutlak penggunanya yang tidak akan pernah mengkhianati pemiliknya.
-
-Min-ho mengetuk layar ponselnya, memeriksa radar cuaca perbatasan Thailand yang terhubung ke satelit militer.
-
-"Jin, laporan cuaca terbaru menunjukkan badai petir besar sedang melanda hutan bambu utara Black Valley. Kecepatan angin di area penerjunan mencapai tiga puluh knot."
+Min-ho mengetuk layar ponselnya, memeriksa radar cuaca perbatasan Thailand yang terhubung ke satelit militer. "Jin, laporan cuaca terbaru menunjukkan badai petir besar sedang melanda hutan bambu utara Black Valley. Kecepatan angin di area penerjunan mencapai tiga puluh knot."
 
 "Ini menguntungkan karena radar taktis musuh di bawah akan kacau total akibat interferensi petir, tetapi penerjunan kita akan sangat berbahaya karena hembusan angin kencang yang tidak terprediksi," sambung Min-ho cemas sambil menatap Ryu Jin.
 
-Han Shin-woo menyeringai dingin sambil mengencangkan tali parasut taktisnya di punggung.
+Han Shin-woo menyeringai dingin sambil mengencangkan tali parasut taktisnya di punggung. "Angin kencang dan badai petir... itu adalah skenario pendaratan yang sempurna untuk menyergap para tikus kartel itu dari langit. Mereka tidak akan pernah menyangka kita datang dari atas badai."
 
-"Angin kencang dan badai petir... itu adalah skenario pendaratan yang sempurna untuk menyergap para tikus kartel itu dari langit. Mereka tidak akan pernah menyangka kita datang dari atas badai."
-
-Jet siluman berguncang pelan saat mulai melakukan manuver menukik tajam menembus awan badai Thailand.
-
-Guncangan udara terasa semakin kuat menghantam bodi pesawat, membuat kabin bergetar hebat di bawah tekanan gravitasi.
+Jet siluman berguncang pelan saat mulai melakukan manuver menukik tajam menembus awan badai Thailand. Guncangan udara terasa semakin kuat menghantam bodi pesawat, membuat kabin bergetar hebat di bawah tekanan gravitasi.
 
 Lampu indikator merah di atas pintu keluar kabin mendadak berubah menjadi lampu hijau yang berkedip cepat, diiringi bunyi alarm nyaring yang menandai waktu penerjunan tinggal hitungan detik.
 
-Kru militer segera membuka pintu ramp belakang jet.
+Kru militer segera membuka pintu ramp belakang jet. Seketika, deru angin badai yang sangat kencang dan butiran air hujan yang dingin menerobos masuk ke dalam kabin, mengaburkan pandangan mereka dengan kabut putih tebal. Di bawah mereka, terhampar kegelapan rimba hutan bambu utara Thailand yang diterangi sesekali oleh kilatan petir yang menyambar langit.
 
-Seketika, deru angin badai yang sangat kencang dan butiran air hujan yang dingin menerobos masuk ke dalam kabin, mengaburkan pandangan mereka dengan kabut putih tebal.
-
-Di bawah mereka, terhampar kegelapan rimba hutan bambu utara Thailand yang diterangi sesekali oleh kilatan petir yang menyambar langit.
-
-Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai akan resmi dikibaskan memotong leher para kartel di tanah Lembah Hitam.
-
-Ryu Jin melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, siap menerjang kegelapan.
+Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai akan resmi dikibaskan memotong leher para kartel di tanah Lembah Hitam. Ryu Jin melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, siap menerjang kegelapan.
 
 ## BAB 61: TARING NAGA DI HUTAN BAMBU
 
 Pukul 01.30 Dini Hari.
-
 Hutan Bambu Bukit Utara, Perbatasan Black Valley.
 
-Petir menyambar membelah langit malam Thailand yang gelap gulita, menciptakan kilatan cahaya putih bising yang menerangi puncak bukit.
+Petir menyambar membelah langit malam Thailand yang gelap gulita, menciptakan kilatan cahaya putih bising yang menerangi puncak bukit. Di bawah awan badai hitam yang bergulung, tiga sosok bayangan melompat keluar dari pintu darurat jet siluman militer pada ketinggian ribuan kaki. Terpaan angin kencang bertekanan tinggi menghantam bodi rompi mereka saat meluncur bebas menembus kegelapan malam, sebelum akhirnya parasut taktis hitam pekat mereka mengembang sempurna secara senyap.
 
-Di bawah awan badai hitam yang bergulung, tiga sosok bayangan melompat keluar dari pintu darurat jet siluman militer pada ketinggian ribuan kaki.
-
-Terpaan angin kencang bertekanan tinggi menghantam bodi rompi mereka saat meluncur bebas menembus kegelapan malam, sebelum akhirnya parasut taktis hitam pekat mereka mengembang sempurna secara senyap.
-
-Mereka mendarat dengan mulus di lereng bukit curam yang dipenuhi rimbunnya pohon bambu yang rapat.
-
-Ryu Jin melepaskan sabuk parasutnya dengan satu tarikan cepat, berguling di atas tanah berlumpur untuk menyerap momentum jatuhnya.
-
-Di sebelahnya, Han Shin-woo dan Choi Min-ho melakukan gerakan serupa dengan refleks yang sangat terlatih.
-
-Tubuh mereka langsung basah kuyup dihantam derasnya air hujan pegunungan yang dingin menggigit tulang.
-
-Bau tanah basah, aroma getah bambu yang tajam, dan hawa dingin pegunungan langsung menyelimuti indra penciuman mereka.
+Mereka mendarat dengan mulus di lereng bukit curam yang dipenuhi rimbunnya pohon bambu yang rapat. Ryu Jin melepaskan sabuk parasutnya dengan satu tarikan cepat, berguling di atas tanah berlumpur untuk menyerap momentum jatuhnya. Di sebelahnya, Han Shin-woo dan Choi Min-ho melakukan gerakan serupa dengan refleks yang sangat terlatih. Tubuh mereka langsung basah kuyup dihantam derasnya air hujan pegunungan yang dingin menggigit tulang. Bau tanah basah, aroma getah bambu yang tajam, dan hawa dingin pegunungan langsung menyelimuti indra penciuman mereka.
 
 Dari arah lembah yang berjarak sekitar dua kilometer, gema dentuman meriam mortar terdengar beruntun mengguncang tanah di bawah kaki mereka.
 
 DUMM! DUMM! DUMM!
+"Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air. "Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding semen benteng ORCA akan jebol sebelum fajar."
 
-"Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air.
-
-"Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding semen benteng ORCA akan jebol sebelum fajar."
-
-Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh jaringan lokal Grey Hawk.
-
-Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
+Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh jaringan lokal Grey Hawk. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
 
 *
 
-Ryu Jin melangkah mendekati kotak kayu tersebut.
+Ryu Jin melangkah mendekati kotak kayu tersebut. Ia membuka kancing kulitnya, memaparkan sebuah pedang katana tradisional Jepang dengan sarung kayu hitam mengilap berukir lambang naga bersilang pedang. Jin menggenggam gagang pedang tersebut, menariknya sedikit keluar dari sarungnya. Bilah baja pedang itu berkilau dingin, memantulkan kilatan petir di langit dengan ketajaman yang mengerikan. Jin merasakan keseimbangan berat pedang itu yang sangat sempurna di tangannya. Ia teringat kembali latihan pedang keras yang ia jalani di kuil Kyoto bersama Bos Takamori, melatih otot pergelangan tangannya untuk menarik bilah pedang dalam pecahan detik secara konstan.
 
-Ia membuka kancing kulitnya, memaparkan sebuah pedang katana tradisional Jepang dengan sarung kayu hitam mengilap berukir lambang naga bersilang pedang.
-
-Jin menggenggam gagang pedang tersebut, menariknya sedikit keluar dari sarungnya.
-
-Bilah baja pedang itu berkilau dingin, memantulkan kilatan petir di langit dengan ketajaman yang mengerikan.
-
-Jin merasakan keseimbangan berat pedang itu yang sangat sempurna di tangannya.
-
-Ia teringat kembali latihan pedang keras yang ia jalani di kuil Kyoto bersama Bos Takamori, melatih otot pergelangan tangannya untuk menarik bilah pedang dalam pecahan detik secara konstan.
-
-Jin menyarungkan kembali pedang tersebut dan mengikatnya erat di pinggang kirinya.
-
-Ia kemudian mengambil kantong kulit hitam yang berisi dua puluh baut baja tebal dan menyelipkannya di sabuk taktis dada.
+Jin menyarungkan kembali pedang tersebut dan mengikatnya erat di pinggang kirinya. Ia kemudian mengambil kantong kulit hitam yang berisi dua puluh baut baja tebal dan menyelipkannya di sabuk taktis dada.
 
 "Kau benar-benar tidak ingin membawa senapan serbu, Jin?" tanya Shin-woo sambil memeriksa isi magasin senapan mesin ringan miliknya.
 
-"Dalam kegelapan dan badai seperti ini, suara tembakan senjata api hanya akan membocorkan posisi kita," jawab Jin datar.
+"Dalam kegelapan dan badai seperti ini, suara tembakan senjata api hanya akan membocorkan posisi kita," jawab Jin datar. "Pedang ini tidak akan kehabisan peluru."
 
-"Pedang ini tidak akan kehabisan peluru."
-
-Min-ho hidupkan mesin motor trailnya yang telah dimodifikasi khusus agar suara knalpotnya terdengar sangat senyap, nyaris tenggelam oleh derasnya suara air hujan.
-
-"Aku sudah memetakan posisi unit artileri musuh. Ada sekitar lima belas kombatan Kartel Black Ant yang menjaga dua pos mortar di balik bukit bambu ini."
+Min-ho menghidupkan mesin motor trailnya yang telah dimodifikasi khusus agar suara knalpotnya terdengar sangat senyap, nyaris tenggelam oleh derasnya suara air hujan. "Aku sudah memetakan posisi unit artileri musuh. Ada sekitar lima belas kombatan Kartel Black Ant yang menjaga dua pos mortar di balik bukit bambu ini."
 
 "Kita bergerak," perintah Jin dingin, memutar gas motor trailnya.
 
 *
 
-Tiga motor trail melesat cepat menembus labirin hutan bambu yang rapat.
+Tiga motor trail melesat cepat menembus labirin hutan bambu yang rapat. Mereka berkendara tanpa menggunakan lampu utama, sepenuhnya mengandalkan visualisasi rute dari pemindai sensor suhu tubuh pada kacamata taktis malam hari mereka. Lumpur tebal berhamburan saat ban-ban motor mencengkeram tanah basah berbukit.
 
-Mereka berkendara tanpa menggunakan lampu utama, sepenuhnya mengandalkan visualisasi rute dari pemindai sensor suhu tubuh pada kacamata taktis malam hari mereka.
+Hanya dalam waktu sepuluh menit, mereka tiba di punggung bukit. Di depan mereka, di sebuah area terbuka yang dikelilingi pagar bambu darurat, tampak dua unit meriam mortar sedang aktif memuntahkan peluru ke arah lembah di bawah. Sepuluh prajurit Kartel Black Ant berseragam hijau kusam berjaga dengan senapan serbu bergantung di dada, sementara lima lainnya sibuk memuat peluru mortar.
 
-Lumpur tebal berhamburan saat ban-ban motor mencengkeram tanah basah berbukit.
-
-Hanya dalam waktu sepuluh menit, mereka tiba di punggung bukit.
-
-Di depan mereka, di sebuah area terbuka yang dikelilingi pagar bambu darurat, tampak dua unit meriam mortar sedang aktif memuntahkan peluru ke arah lembah di bawah.
-
-Sepuluh prajurit Kartel Black Ant berseragam hijau kusam berjaga dengan senapan serbu bergantung di dada, sementara lima lainnya sibuk memuat peluru mortar.
-
-Ryu Jin menghentikan motornya di balik semak tebal.
-
-Ia turun tanpa suara, tangan kirinya memegang sarung pedang di pinggang, sementara tangan kanannya meraba kantong baut baja di dada.
+Ryu Jin menghentikan motornya di balik semak tebal. Ia turun tanpa suara, tangan kirinya memegang sarung pedang di pinggang, sementara tangan kanannya meraba kantong baut baja di dada.
 
 "Shin-woo, Min-ho, bersihkan barisan kiri. Biarkan unit mortar bagian kanan menjadi urusanku," bisik Jin senyap.
 
-Sebelum Shin-woo sempat menjawab, Jin melesat maju bagaikan kilatan petir di tengah badai hujan.
-
-Gerakan melangkah kakinya menggunakan teknik langkah silang Iaijutsu membuatnya berpindah tempat secara instan tanpa menimbulkan riak udara atau suara lumpur.
-
-Ibu jarinya mendorong pelindung katana keluar dari sarungnya dengan bunyi klik yang hampir tidak terdengar.
+Sebelum Shin-woo sempat menjawab, Jin melesat maju bagaikan kilatan petir di tengah badai hujan. Gerakan melangkah kakinya menggunakan teknik langkah silang Iaijutsu membuatnya berpindah tempat secara instan tanpa menimbulkan riak udara atau suara lumpur. Ibu jarinya mendorong pelindung katana keluar dari sarungnya dengan bunyi klik yang hampir tidak terdengar.
 
 SRET!
-
-Bilah katana Jin meluncur keluar dari sarungnya dalam satu lecutan melengkung yang sangat cepat dan akurat.
-
-Tebasan pedang itu menggunakan momentum putaran tubuhnya, memotong tenggorokan dua penjaga terdekat secara bersamaan sebelum mereka sempat menyadari kehadiran penyusup.
-
-Darah segar memancar hangat, langsung tersapu oleh derasnya air hujan dingin yang mengguyur tubuh mereka.
+Bilah katana Jin meluncur keluar dari sarungnya dalam satu lecutan melengkung yang sangat cepat dan akurat. Tebasan pedang itu menggunakan momentum putaran tubuhnya, memotong tenggorokan dua penjaga terdekat secara bersamaan sebelum mereka sempat menyadari kehadiran penyusup. Darah segar memancar hangat, langsung tersapu oleh derasnya air hujan dingin yang mengguyur tubuh mereka.
 
 *
 
 "Penyusup! Ada penyu..."
 
 TAK!
+Belum sempat prajurit ketiga menyelesaikan teriakannya, tangan kanan Ryu Jin menjentikkan sebuah baut baja tebal menggunakan kekuatan otot jarinya yang terlatih. Baut baja itu melesat cepat dan menancap tepat di antara kedua mata prajurit tersebut, menembus tulang tengkorak dan merubuhkannya seketika tanpa suara.
 
-Belum sempat prajurit ketiga menyelesaikan teriakannya, tangan kanan Ryu Jin menjentikkan sebuah baut baja tebal menggunakan kekuatan otot jarinya yang terlatih.
+Seorang kapten kartel di dekat pos mortar kanan mencoba menarik pelatuk senjatanya ke arah Jin. Namun dengan kelenturan refleks yang luar biasa, Jin memutar tubuhnya menyamping, membiarkan rentetan peluru melesat melewati mantel hitamnya.
 
-Baut baja itu melesat cepat dan menancap tepat di antara kedua mata prajurit tersebut, menembus tulang tengkorak dan merubuhkannya seketika tanpa suara.
-
-Seorang kapten kartel di dekat pos mortar kanan mencoba menarik pelatuk senjatanya ke arah Jin.
-
-Namun dengan kelenturan refleks yang luar biasa, Jin memutar tubuhnya menyamping, membiarkan rentetan peluru melesat melewati mantel hitamnya.
-
-Dalam pecahan detik yang sama, Jin melangkah maju, memangkas jarak pertarungan menjadi jarak dekat.
-
-Tangan kirinya menghantam titik saraf vital di bawah rahang sang kapten dengan totokan telapak tangan terbuka, menghancurkan keseimbangan dan melumpuhkan saraf motoriknya secara instan.
-
-Bersamaan dengan tubuh sang kapten yang limbung, bilah katana Jin menebas urat nadi leher korban dalam satu gerakan memutar yang dingin.
+Dalam pecahan detik yang sama, Jin melangkah maju, memangkas jarak pertarungan menjadi jarak dekat. Tangan kirinya menghantam titik saraf vital di bawah rahang sang kapten dengan totokan telapak tangan terbuka, menghancurkan keseimbangan dan melumpuhkan saraf motoriknya secara instan. Bersamaan dengan tubuh sang kapten yang limbung, bilah katana Jin menebas urat nadi leher korban dalam satu gerakan memutar yang dingin.
 
 KRAK!
+Di sisi kiri, Han Shin-woo bergerak bagaikan siluman malam di antara batang-batang bambu yang rapat. Dua bilah kunai hitam bergerigi di kedua tangannya menyayat udara dengan presisi menakjubkan. Ia melesat dari balik bayangan, menebas pergelangan tangan prajurit yang mencoba membidik Min-ho, lalu berputar cepat dan menusukkan kunai kirinya menembus ulu hati musuh lainnya hingga ambruk.
 
-Di sisi kiri, Han Shin-woo bergerak bagaikan siluman malam di antara batang-batang bambu yang rapat.
+Ketika tiga prajurit kartel mencoba mengepungnya dari arah belakang semak-semak, Shin-woo mengibaskan tangan kanannya dengan sentakan memutar yang terlatih. Tiga bilah shuriken baja berbentuk bintang segi empat meluncur senyap menembus derasnya tirai hujan badai, menancap tepat di tenggorokan mereka dan merubuhkan ketiganya seketika tanpa sempat mengeluarkan suara.
 
-Dua bilah kunai hitam bergerigi di kedua tangannya menyayat udara dengan presisi menakjubkan.
-
-Ia melesat dari balik bayangan, menebas pergelangan tangan prajurit yang mencoba membidik Min-ho, lalu berputar cepat dan menusukkan kunai kirinya menembus ulu hati musuh lainnya hingga ambruk.
-
-Ketika tiga prajurit kartel mencoba mengepungnya dari arah belakang semak-semak, Shin-woo mengibaskan tangan kanannya dengan sentakan memutar yang terlatih.
-
-Tiga bilah shuriken baja berbentuk bintang segi empat meluncur senyap menembus derasnya tirai hujan badai, menancap tepat di tenggorokan mereka dan merubuhkan ketiganya seketika tanpa sempat mengeluarkan suara.
-
-Min-ho bergerak aktif melindungi punggung Shin-woo.
-
-Ia menembakkan pelontar gas air mata portabel dari tangannya ke arah kelompok musuh yang mencoba berkumpul, lalu melumpuhkan kapten barisan belakang menggunakan sengatan listrik tegangan tinggi dari ponsel taktisnya yang telah dimodifikasi.
+Min-ho bergerak aktif melindungi punggung Shin-woo. Ia menembakkan pelontar gas air mata portabel dari tangannya ke arah kelompok musuh yang mencoba berkumpul, lalu melumpuhkan kapten barisan belakang menggunakan sengatan listrik tegangan tinggi dari ponsel taktisnya yang telah dimodifikasi.
 
 Hanya dalam waktu tiga menit.
+Seluruh unit artileri Kartel Black Ant di puncak bukit utara telah dibantai habis. Lima belas mayat kombatan kartel tergeletak kaku bersimbah darah di atas tanah lumpur yang merah, menyisakan keheningan malam yang hanya diisi oleh desau angin and derasnya hujan badai.
 
-Seluruh unit artileri Kartel Black Ant di puncak bukit utara telah dibantai habis.
+Ryu Jin berdiri di samping meriam mortar yang kini telah berhenti memuntahkan peluru. Ia menyapu darah musuh pada bilah katananya menggunakan sapuan dua jari yang tenang, lalu menyarungkan kembali pedang tersebut dengan bunyi klik yang senyap.
 
-Lima belas mayat kombatan kartel tergeletak kaku bersimbah darah di atas tanah lumpur yang merah, menyisakan keheningan malam yang hanya diisi oleh desau angin dan derasnya hujan badai.
-
-Ryu Jin berdiri di samping meriam mortar yang kini telah berhenti memuntahkan peluru.
-
-Ia menyapu darah musuh pada bilah katananya menggunakan sapuan dua jari yang tenang, lalu menyarungkan kembali pedang tersebut dengan bunyi klik yang senyap.
-
-"Unit artileri utara sudah bersih," ujar Jin, menatap ke arah benteng ORCA di bawah lembah yang masih diterangi pendar lampu pertahanan darurat.
-
-"Min-ho, pasang bom peledak di kedua moncong mortar ini. Kita turun ke benteng sekarang."
+"Unit artileri utara sudah bersih," ujar Jin, menatap ke arah benteng ORCA di bawah lembah yang masih diterangi pendar lampu pertahanan darurat. "Min-ho, pasang bom peledak di kedua moncong mortar ini. Kita turun ke benteng sekarang."
 
 "Mengerti, Jin," sahut Min-ho, segera memasang bahan peledak di sirkuit penembak mortar.
 
-Detik berikutnya, dua ledakan keras menghancurkan meriam mortar tersebut, menandakan bahwa ancaman bombardir udara dari bukit utara telah resmi berakhir.
-
-Namun di bawah lembah, badai pertempuran yang sesungguhnya baru saja akan dimulai.
+Detik berikutnya, dua ledakan keras menghancurkan meriam mortar tersebut, menandakan bahwa ancaman bombardir udara dari bukit utara telah resmi berakhir. Namun di bawah lembah, badai pertempuran yang sesungguhnya baru saja akan dimulai.
 
 ## BAB 62: PERTAHANAN TEMBOK ABU
 
