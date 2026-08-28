@@ -8271,9 +8271,9 @@ Ia merasakan berat pedang itu di tangannya, menemukan keseimbangan yang sempurna
 
 Jin melakukan satu gerakan tebasan bayangan yang lambat namun penuh tekanan udara, sebelum memasukkan kembali pedang ke dalam sarungnya dengan bunyi klik yang mantap.
 
-"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil menyarungkan pisau karambit gandanya di sabuk taktis.
+"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya.
 
-"Jaringan Grey Hawk telah mengatur semuanya dengan matang."
+"Sejak menyadari musuh utama kita adalah sindikat Yakuza Kurokawa di Tokyo, aku mulai melatih diri menggunakan senjata tradisional Jepang ini," sambung Shin-woo serius. "Kunai dan shuriken ini jauh lebih efisien untuk pertarungan sunyi, menggantikan karambit dan belati lempar lamaku sebagai persiapan taktis sebelum kita menyerbu Jepang."
 
 "Dia berutang nyawa pada pimpinan Grey Hawk di masa lalu," balas Ryu Jin dengan nada suara yang rendah dan datar.
 

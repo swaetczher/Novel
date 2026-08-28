@@ -5774,7 +5774,7 @@ Menteri Pertahanan mengonfirmasi bahwa jaringan rekan-rekan Grey Hawk telah memp
 
 Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
 
-"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil menyarungkan pisau karambit gandanya di sabuk taktis. "Jaringan Grey Hawk telah mengatur semuanya dengan matang."
+"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya. Sejak menyadari musuh utama mereka adalah sindikat Yakuza Kurokawa di Tokyo, Shin-woo mulai melatih diri menggunakan senjata tradisional Jepang tersebut, menggantikan pisau karambit dan belati lempar lamanya untuk persiapan taktis menyeberang ke Jepang.
 
 "Dia berutang nyawa pada Grey Hawk," balas Ryu Jin dengan suara rendah dan datar. "Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan Jenderal Kang di tubuh militer Korea. Ini adalah perang pribadinya juga."
 
@@ -5880,7 +5880,9 @@ Dalam pecahan detik yang sama, Jin melangkah maju, memangkas jarak pertarungan m
 
 *KRAK!*
 
-Di sisi kiri, Han Shin-woo bergerak bagaikan bayangan gila di antara batang-batang bambu. Karambit gandanya menyayat udara dalam pola melingkar yang mematikan. Ia memotong pergelangan tangan prajurit yang mencoba membidik Min-ho, lalu berputar dan menusukkan karambit kirinya menembus ulu hati musuh lainnya.
+Di sisi kiri, Han Shin-woo bergerak bagaikan bayangan gila di antara batang-batang bambu. Dua bilah kunai hitam bergerigi di kedua tangannya menyayat udara dengan presisi menakjubkan. Ia melesat dari balik bayangan, menebas pergelangan tangan prajurit yang mencoba membidik Min-ho, lalu berputar cepat dan menusukkan kunai kirinya menembus ulu hati musuh lainnya hingga ambruk.
+
+Ketika tiga prajurit kartel mencoba mengepungnya dari arah belakang semak-semak, Shin-woo mengibaskan tangan kanannya dengan sentakan memutar yang terlatih. Tiga bilah shuriken baja berbentuk bintang segi empat meluncur senyap menembus derasnya tirai hujan badai, menancap tepat di tenggorokan mereka dan merubuhkan ketiganya seketika tanpa sempat mengeluarkan suara.
 
 Min-ho bergerak aktif melindungi punggung Shin-woo. Ia menembakkan pelontar gas air mata portabel dari tangannya ke arah kelompok musuh yang mencoba berkumpul, lalu melumpuhkan kapten barisan belakang menggunakan sengatan listrik tegangan tinggi dari ponsel taktisnya yang telah dimodifikasi.
 
