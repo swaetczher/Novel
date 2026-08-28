@@ -7819,7 +7819,7 @@ Choi Min-ho menatap layar pemindai taktis di pergelangan tangannya yang memancar
 
 "Anomali sinyal!" suara Min-ho terdengar menegang di balik maskernya. "Sistem hidrolik lift dikunci paksa dari server bawah tanah utama! Sensor termal mendeteksi adanya dua puluh empat tanda panas tubuh bersenjata lengkap... mereka sedang berbaris mengepung pintu keluar lift di bawah!"
 
-*PSSSHHH!* Tiba-tiba, lampu darurat berwarna merah darah di dalam lift menyala berpendar redup, memberikan pencahayaan yang aneh dan mencekam di wajah-wajah tenang Trio Predator.
+*PSSSHHH!* Tiba-tiba, lampu darurat berwarna merah darah di dalam lift menyala berpendar redup, memberikan pencahayaan yang aneh dan mencekam di wajah-wajah tenang mereka bertiga.
 
 *KREEEKKK...*
 
@@ -8041,7 +8041,7 @@ Ryu Jin menyambar map dokumen hitam di atas meja, menyimpannya di balik jaket ta
 
 ***
 
-Trio Predator melompat melewati pintu baja darurat yang terbuka di balik dinding marmer, berlari sekuat tenaga menyusuri terowongan evakuasi bawah tanah yang gelap gulita. Di belakang mereka, suara gemuruh ledakan dahsyat mulai terdengar beruntun mengguncang seluruh bangunan.
+Ryu Jin, Shin-woo, dan Min-ho melompat melewati pintu baja darurat yang terbuka di balik dinding marmer, berlari sekuat tenaga menyusuri terowongan evakuasi bawah tanah yang gelap gulita. Di belakang mereka, suara gemuruh ledakan dahsyat mulai terdengar beruntun mengguncang seluruh bangunan.
 
 *DUMMM! DUMMM! DUMMM!*
 
@@ -8223,7 +8223,7 @@ Di hanggar Seora, Ryu Jin menatap layar berita.
 
 Korea telah runtuh, dan Tokyo mulai bergetar.
 
-Trio Predator bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
+Ryu Jin, Shin-woo, dan Min-ho bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
 
 *
 
@@ -8239,7 +8239,7 @@ Bodi pesawat itu nampak menyerap cahaya rembulan malam, memancarkan aura misteri
 
 Angin pesisir yang kencang membawa aroma garam dan kelembapan laut yang pekat, menusuk tulang di tengah kegelapan malam yang dingin.
 
-Trio Predator melangkah cepat menaiki tangga jet siluman tersebut dengan langkah kaki yang teratur dan penuh tekad.
+Ryu Jin, Shin-woo, dan Min-ho melangkah cepat menaiki tangga jet siluman tersebut dengan langkah kaki yang teratur dan penuh tekad.
 
 Di dalam kabin jet yang sempit namun dipenuhi barisan instrumen navigasi canggih, beberapa kru militer suruhan Menteri Pertahanan menyambut mereka dengan sikap hormat yang tinggi.
 

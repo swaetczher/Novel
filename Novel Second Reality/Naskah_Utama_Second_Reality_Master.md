@@ -5444,7 +5444,7 @@ Choi Min-ho menatap layar pemindai taktis di pergelangan tangannya yang memancar
 
 *PSSSHHH!*
 
-Tiba-tiba, lampu darurat berwarna merah darah di dalam lift menyala berpendar redup, memberikan pencahayaan yang aneh dan mencekam di wajah-wajah tenang Trio Predator.
+Tiba-tiba, lampu darurat berwarna merah darah di dalam lift menyala berpendar redup, memberikan pencahayaan yang aneh dan mencekam di wajah-wajah tenang mereka bertiga.
 
 *KREEEKKK...*
 
@@ -5680,7 +5680,7 @@ Ryu Jin menyambar map dokumen hitam di atas meja, menyimpannya di balik jaket ta
 
 ***
 
-Trio Predator melompat melewati pintu baja darurat yang terbuka di balik dinding marmer, berlari sekuat tenaga menyusuri terowongan evakuasi bawah tanah yang gelap gulita. Di belakang mereka, suara gemuruh ledakan dahsyat mulai terdengar beruntun mengguncang seluruh bangunan.
+Ryu Jin, Shin-woo, dan Min-ho melompat melewati pintu baja darurat yang terbuka di balik dinding marmer, berlari sekuat tenaga menyusuri terowongan evakuasi bawah tanah yang gelap gulita. Di belakang mereka, suara gemuruh ledakan dahsyat mulai terdengar beruntun mengguncang seluruh bangunan.
 
 *DUMMM! DUMMM! DUMMM!*
 
@@ -5704,7 +5704,7 @@ Ryu Jin menggenggam erat pisau taktisnya, kepalanya dipenuhi kalkulasi taktis ru
 **Pukul 04.30 Pagi.**
 **Markas ORCA Divisi Seora, Distrik Utara.**
 
-Udara pagi yang dingin bertiup kencang menyapu area dermaga tua Distrik Utara. Sisa-sisa air hujan semalam masih menggenang di atas aspal retak, memantulkan pendar abu-abu dari langit fajar yang berkabut tebal. Di dalam hanggar galangan kapal lama yang telah disulap menjadi markas rahasia ORCA, Trio Predator duduk mengelilingi meja kayu panjang di ruang komando utama. Tubuh mereka masih basah oleh air hujan dan bercak lumpur hitam pasca-pelarian dari runtuhnya bunker militer.
+Udara pagi yang dingin bertiup kencang menyapu area dermaga tua Distrik Utara. Sisa-sisa air hujan semalam masih menggenang di atas aspal retak, memantulkan pendar abu-abu dari langit fajar yang berkabut tebal. Di dalam hanggar galangan kapal lama yang telah disulap menjadi markas rahasia ORCA, Ryu Jin, Shin-woo, dan Min-ho duduk mengelilingi meja kayu panjang di ruang komando utama. Tubuh mereka masih basah oleh air hujan dan bercak lumpur hitam pasca-pelarian dari runtuhnya bunker militer.
 
 Lee Jae-hyeok menyodorkan tiga cangkir kopi hitam panas yang uapnya mengepul wangi. Di sebelahnya, Park Jin-woo berdiri tegap dengan sikap siaga penuh, menjaga pintu masuk baja ruangan.
 
@@ -5756,7 +5756,7 @@ Sebelum keberangkatan mereka, Min-ho meretas portal berita nasional dan memublik
 
 Berita tersebut melompat hingga ke Tokyo, mengungkap suap pejabat kementerian pertahanan Jepang oleh Sindikat Kurokawa. Di Tokyo, pimpinan Kurokawa panik dan mengancam pejabat Jepang yang terlibat agar segera membungkam media dalam waktu 24 jam atau mereka akan dibungkam selamanya.
 
-Di hanggar Seora, Ryu Jin menatap layar berita. Korea telah runtuh, dan Tokyo mulai bergetar. Trio Predator bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
+Di hanggar Seora, Ryu Jin menatap layar berita. Korea telah runtuh, dan Tokyo mulai bergetar. Ryu Jin, Shin-woo, dan Min-ho bersiap menuju pangkalan udara timur untuk menyongsong badai di Lembah Hitam.
 ## BAB 60: JEMBATAN UDARA MENUJU LEMBAH HITAM
 
 **Pukul 22.00 Malam.**
@@ -5764,7 +5764,7 @@ Di hanggar Seora, Ryu Jin menatap layar berita. Korea telah runtuh, dan Tokyo mu
 
 Di bawah guyuran gerimis tipis yang dingin di pesisir timur Korea, sebuah pesawat jet pengintai siluman berwarna hitam arang tanpa emblem tampak berdiri kokoh di landasan pacu yang sunyi. Kulit karbon pesawat itu nampak menyerap cahaya rembulan malam, memancarkan aura misterius yang mematikan. Angin pesisir yang kencang membawa aroma garam dan kelembapan laut yang pekat, menusuk tulang di tengah kegelapan malam.
 
-Trio Predator melangkah cepat menaiki tangga jet siluman tersebut. Di dalam kabin jet yang sempit namun dipenuhi barisan instrumen navigasi canggih, kru militer kiriman Menteri Pertahanan menyambut mereka dengan sikap hormat yang tinggi. Di sudut kabin, barisan perlengkapan taktis yang dijanjikan telah tertata dengan rapi di atas meja kompartemen logam.
+Ryu Jin, Shin-woo, dan Min-ho melangkah cepat menaiki tangga jet siluman tersebut. Di dalam kabin jet yang sempit namun dipenuhi barisan instrumen navigasi canggih, kru militer kiriman Menteri Pertahanan menyambut mereka dengan sikap hormat yang tinggi. Di sudut kabin, barisan perlengkapan taktis yang dijanjikan telah tertata dengan rapi di atas meja kompartemen logam.
 
 Ryu Jin, Han Shin-woo, dan Choi Min-ho segera mengenakan baju anti peluru hitam tebal yang disediakan. Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka, memberikan perlindungan maksimal tanpa mengurangi mobilitas gerak secara drastis. Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya.
 
@@ -5990,7 +5990,7 @@ Tiba-tiba, suara sayatan tajam yang sangat senyap terdengar dari luar tenda. Han
 
 Kain terpal pintu tenda robek menjadi dua bagian secara vertikal. Dari balik celah robekan tersebut, Ryu Jin melangkah masuk dengan sangat tenang. Ia mengenakan mantel taktis hitam yang basah oleh air hujan, tangan kanannya memegang bilah katana tradisional Jepang yang mengalirkan tetesan darah merah segar di ujung tajamnya. Di belakangnya, Han Shin-woo berdiri tegak sambil memutar karambit gandanya yang berlumuran darah, sementara Choi Min-ho bersiaga dengan ponsel taktis di tangan kirinya.
 
-Krao dan Somchai membelalak lebar melihat kehadiran Trio Predator. Pendar cahaya fajar yang abu-abu dari luar robekan tenda menerangi mata biru es milik Ryu Jin yang memancarkan kekosongan emosi yang mengerikan.
+Krao dan Somchai membelalak lebar melihat kehadiran Ryu Jin, Shin-woo, dan Min-ho. Pendar cahaya fajar yang abu-abu dari luar robekan tenda menerangi mata biru es milik Ryu Jin yang memancarkan kekosongan emosi yang mengerikan.
 
 "Ryu Jin?!" desis Krao ngeri, mundur satu langkah ke belakang mejanya. "Bagaimana bisa kau... kau berada di sini?! Kau seharusnya masih menyeberangi laut Korea!"
 
