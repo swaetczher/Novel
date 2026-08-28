@@ -5766,9 +5766,9 @@ Ryu Jin, Shin-woo, dan Min-ho melangkah cepat menaiki tangga jet siluman tersebu
 
 Ryu Jin, Han Shin-woo, dan Choi Min-ho segera mengenakan baju anti peluru hitam tebal yang disediakan. Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka, memberikan perlindungan maksimal tanpa mengurangi mobilitas gerak secara drastis. Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya.
 
-Menteri Pertahanan mengonfirmasi bahwa Tawan bersama jaringan lokal ORCA di Thailand telah mempersiapkan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di titik pendaratan hutan bambu, tersembunyi dengan rapi di bawah terpal penyamar. Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
+Menteri Pertahanan mengonfirmasi bahwa tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian telah dimuat di dalam kompartemen kargo jet siluman ini, bersiap untuk diturunkan menggunakan parasut kargo otomatis di dekat titik pendaratan mereka. Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
 
-"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya. Sejak menyadari musuh utama mereka adalah sindikat Yakuza Kurokawa di Tokyo, Shin-woo mulai melatih diri menggunakan senjata tradisional Jepang tersebut, menggantikan pisau karambit dan belati lempar lamanya untuk persiapan taktis menyeberang ke Jepang.
+"Senjata dan motor kita sudah dimuat di dalam kargo," gumam Han Shin-woo sambil merapikan sepasang kunai hitam bergerigi di sabuk taktis dada dan mengencangkan kantong shuriken di pinggangnya. Sejak menyadari musuh utama mereka adalah sindikat Yakuza Kurokawa di Tokyo, Shin-woo mulai melatih diri menggunakan senjata tradisional Jepang tersebut, menggantikan pisau karambit dan belati lempar lamanya untuk persiapan taktis menyeberang ke Jepang.
 
 "Beliau mendukung operasi ini karena ingin menyapu bersih pejabat korup," balas Ryu Jin dengan suara rendah dan datar. "Menteri Pertahanan ingin membersihkan noda yang ditinggalkan oleh komplotan Jenderal Kang di tubuh militer Korea. Ini adalah perang pribadinya juga."
 
@@ -5810,7 +5810,7 @@ Lampu indikator merah di atas pintu keluar kabin mendadak berubah menjadi lampu 
 
 Kru militer segera membuka pintu ramp belakang jet. Seketika, deru angin badai yang sangat kencang dan butiran air hujan yang dingin menerobos masuk ke dalam kabin, mengaburkan pandangan mereka dengan kabut putih tebal. Di bawah mereka, terhampar kegelapan rimba hutan bambu utara Thailand yang diterangi sesekali oleh kilatan petir yang menyambar langit.
 
-Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai akan resmi dikibaskan memotong leher para kartel di tanah Lembah Hitam. Ryu Jin melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, siap menerjang kegelapan.
+Pertempuran pembersihan di Korea telah usai, dan kini Ryu Jin bersama ORCA akan resmi mengibaskan taringnya memotong leher para kartel di tanah Lembah Hitam. Ia melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, siap menerjang kegelapan.
 
 ## BAB 61: TARING NAGA DI HUTAN BAMBU
 
@@ -5826,7 +5826,7 @@ Dari arah lembah yang berjarak sekitar dua kilometer, gema dentuman meriam morta
 DUMM! DUMM! DUMM!
 "Itu tembakan mortar kaliber delapan puluh milimeter," bisik Min-ho sambil memeriksa layar ponsel taktisnya yang dilindungi gawai anti-air. "Mereka menembaki benteng kita dari arah puncak bukit utara ini. Jika kita tidak menghentikan unit artileri mereka sekarang, dinding beton benteng ORCA akan jebol sebelum fajar."
 
-Min-ho meraba semak-semak lebat di dekat pohon beringin besar, menarik terpal hitam penyamar yang menutupi tiga motor trail taktis yang telah disiapkan oleh Tawan dan jaringan lokal ORCA. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
+Min-ho bergerak cepat mendekati kontainer kargo taktis yang baru saja mendarat menggunakan parasut kargo otomatis beberapa menit sebelum mereka terjun. Di bawah rimbunnya pohon beringin besar, ia melepas parasut kargonya dan menarik penutup kontainer yang berisi tiga motor trail taktis tersebut. Di atas jok salah satu motor, terdapat sebuah kotak kayu panjang dan kantong kulit hitam tebal.
 
 *
 

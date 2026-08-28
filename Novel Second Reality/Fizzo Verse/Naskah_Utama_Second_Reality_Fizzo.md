@@ -8255,9 +8255,7 @@ Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung d
 
 Min-ho juga memasang helm taktisnya dengan cepat, menyesuaikan posisi pelindung telinga dan mikrofon komunikasi nirkabel.
 
-Menteri Pertahanan mengonfirmasi bahwa Tawan dan jaringan lokal ORCA di Thailand telah bersiap di zona penerjunan hutan bambu.
-
-Mereka telah menyembunyikan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di bawah terpal penyamar.
+Menteri Pertahanan mengonfirmasi bahwa tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian telah dimuat di dalam kompartemen kargo jet siluman ini, bersiap untuk diturunkan menggunakan parasut kargo otomatis di dekat titik pendaratan mereka.
 
 
 
@@ -8357,7 +8355,7 @@ Seketika, deru angin badai yang sangat kencang dan butiran air hujan yang dingin
 
 Di bawah mereka, terhampar kegelapan rimba hutan bambu utara Thailand yang diterangi sesekali oleh kilatan petir yang menyambar langit malam.
 
-Pertempuran pembersihan di Korea telah usai, dan kini taring naga Genryu-kai akan resmi dikibaskan memotong leher para kartel di tanah Lembah Hitam.
+Pertempuran pembersihan di Korea telah usai, dan kini Ryu Jin bersama ORCA akan resmi mengibaskan taringnya memotong leher para kartel di tanah Lembah Hitam.
 
 Ryu Jin melangkah maju ke tepi ramp pesawat, menatap dingin ke arah badai di bawahnya, bersiap menerjang kegelapan.
 
