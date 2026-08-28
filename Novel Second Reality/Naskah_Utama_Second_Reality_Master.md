@@ -5768,17 +5768,17 @@ Trio Predator melangkah cepat menaiki tangga jet siluman tersebut. Di dalam kabi
 
 Ryu Jin, Han Shin-woo, dan Choi Min-ho segera mengenakan baju anti peluru hitam tebal yang disediakan. Rompi pelindung dengan lapisan pelat serat karbon itu terasa kokoh melekat di dada mereka, memberikan perlindungan maksimal tanpa mengurangi mobilitas gerak secara drastis. Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung dada itu melekat sempurna di atas pakaian hitam taktisnya.
 
-Di sebelah matras kabin, terikat kuat tiga unit motor trail berwarna hitam doff yang dirancang khusus untuk medan ekstrem. Ban bermotif cangkul tebal pada motor tersebut tampak siap mencengkeram tanah basah hutan bambu. Min-ho mendekat, memeriksa tangki bahan bakar dan tekanan suspensi motor-motor tersebut untuk memastikan semuanya berada dalam kondisi siap tempur begitu menyentuh daratan.
+Menteri Pertahanan mengonfirmasi bahwa jaringan rekan-rekan Grey Hawk telah mempersiapkan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di titik pendaratan hutan bambu, tersembunyi dengan rapi di bawah terpal penyamar.
 
-Di sudut lain kompartemen, terdapat kotak kayu berlapis beludru yang berisi dua puluh baut baja tebal dengan bobot seimbang, serta sebuah pedang katana Jepang berbilah baja dingin warisan zaman Heian. Katana tersebut merupakan pusaka berharga yang disiapkan khusus oleh jaringan informan atas perintah pribadi Menteri Pertahanan.
 
-Ryu Jin mengambil katana tersebut, menarik bilah bajunya perlahan dari sarung kayu hitam yang dipernis mengilat. Bunyi gesekan logam tipis yang tajam bergema di dalam kabin jet. Pendar cahaya lampu indikator pesawat memantul di permukaan bilah baja yang dingin, menampakkan pola lipatan besi tradisional yang sangat indah namun mematikan. Mata biru es Ryu Jin menatap lurus pantulan dirinya di mata pedang, merasakan keselarasan sempurna antara senjata itu dan kehendak pembalasannya.
 
-"Katana yang luar biasa," gumam Han Shin-woo yang memperhatikan dari samping sambil menyarungkan pisau karambit gandanya di sabuk taktis. "Menteri Pertahanan benar-benar tidak main-main dalam mendukung kita."
+Ryu Jin meraba koin naga bersilang pedang di saku mantelnya. Pikirannya terbayang pada katana tradisional Heian yang menantinya di tanah perbatasan, menanti untuk dicabut melibas leher para kartel.
 
-"Dia berutang nyawa pada Grey Hawk," balas Ryu Jin dengan suara rendah dan datar. Ia mengembalikan pedang ke sarungnya dengan satu klik lembut yang mantap. "Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan Jenderal Kang di tubuh militer Korea. Ini adalah perang pribadinya juga."
+"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil menyarungkan pisau karambit gandanya di sabuk taktis. "Jaringan Grey Hawk telah mengatur semuanya dengan matang."
 
-Ryu Jin mengambil dua puluh baut baja tebal dari kotak kayu. Satu per satu, ia menyelipkan baut-baut baja yang berujung runcing itu ke dalam kantong-kantong kecil khusus di rompi pelindungnya. Setiap baut diletakkan pada posisi yang mudah dijangkau oleh jentikan jemari tangannya dalam hitungan detik.
+"Dia berutang nyawa pada Grey Hawk," balas Ryu Jin dengan suara rendah dan datar. "Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan Jenderal Kang di tubuh militer Korea. Ini adalah perang pribadinya juga."
+
+Ryu Jin membayangkan pertempuran jarak dekat yang akan terjadi di bawah sana. Dua puluh baut baja tebal yang telah disiapkan di lokasi pendaratan akan menjadi proyektil maut di tangan jentikan jemarinya.
 
 *BZZZZT!*
 

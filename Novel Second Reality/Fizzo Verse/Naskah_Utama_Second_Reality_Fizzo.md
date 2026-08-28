@@ -8255,23 +8255,11 @@ Shin-woo mengencangkan tali bahunya dengan tarikan keras, memastikan pelindung d
 
 Min-ho juga memasang helm taktisnya dengan cepat, menyesuaikan posisi pelindung telinga dan mikrofon komunikasi nirkabel.
 
-Di sebelah matras kabin, terdapat tiga unit motor trail berwarna hitam doff yang diikat kuat menggunakan tali pengikat baja otomatis.
+Menteri Pertahanan mengonfirmasi bahwa rekan-rekan Grey Hawk di darat telah bersiap di zona penerjunan hutan bambu.
 
-Kendaraan roda dua ini dirancang khusus untuk melewati medan berat hutan bambu yang basah dan licin.
+Mereka telah menyembunyikan tiga unit motor trail taktis, kotak berisi dua puluh baut baja tebal, serta pedang katana Jepang warisan Heian di bawah terpal penyamar.
 
-Ban bermotif cangkul tebal pada motor tersebut tampak siap mencengkeram tanah lumpur berbukit di perbatasan Thailand.
 
-Shin-woo berjalan mendekat, menendang ban motor untuk memastikan tekanan udaranya cukup kuat.
-
-Sementara itu, Min-ho memeriksa suspensi depan dan tangki bahan bakar cadangan untuk memastikan semuanya berada dalam kondisi siap tempur begitu menyentuh daratan.
-
-Di sudut lain kompartemen kabin, terdapat kotak kayu berlapis beludru hitam yang diletakkan secara terhormat.
-
-Kotak itu berisi dua puluh baut baja tebal dengan bobot seimbang, serta sebuah pedang katana Jepang berbilah baja dingin warisan zaman Heian.
-
-Katana tersebut merupakan pusaka berharga yang disiapkan khusus oleh jaringan informan atas perintah pribadi Menteri Pertahanan.
-
-Ryu Jin melangkah mendekati kotak kayu tersebut dengan pandangan mata yang dingin dan terfokus.
 
 Ia mengambil pedang katana itu, lalu menarik bilah bajunya perlahan dari sarung kayu hitam yang dipernis mengilat.
 
@@ -8283,19 +8271,17 @@ Ia merasakan berat pedang itu di tangannya, menemukan keseimbangan yang sempurna
 
 Jin melakukan satu gerakan tebasan bayangan yang lambat namun penuh tekanan udara, sebelum memasukkan kembali pedang ke dalam sarungnya dengan bunyi klik yang mantap.
 
-"Katana yang luar biasa," gumam Han Shin-woo yang memperhatikan dari samping sambil menyarungkan pisau karambit gandanya di sabuk taktis.
+"Senjata dan motor kita sudah siap di bawah," gumam Han Shin-woo sambil menyarungkan pisau karambit gandanya di sabuk taktis.
 
-"Menteri Pertahanan benar-benar menyediakan kualitas terbaik untuk mendukung pembalasan kita."
+"Jaringan Grey Hawk telah mengatur semuanya dengan matang."
 
 "Dia berutang nyawa pada pimpinan Grey Hawk di masa lalu," balas Ryu Jin dengan nada suara yang rendah dan datar.
 
 "Dan dia ingin membersihkan noda yang ditinggalkan oleh komplotan korup Jenderal Kang di tubuh militer."
 
-Ryu Jin kemudian mengambil dua puluh baut baja tebal dari dalam kotak kayu tersebut.
+Ryu Jin membayangkan pertempuran jarak dekat yang akan terjadi di bawah sana.
 
-Satu per satu, ia menyelipkan baut-baut baja yang berujung runcing itu ke dalam kantong-kantong kecil khusus di rompi pelindungnya.
-
-Setiap baut diletakkan pada posisi yang mudah dijangkau oleh jentikan jemari tangannya dalam hitungan detik saat pertempuran jarak dekat terjadi.
+Dua puluh baut baja tebal yang telah disiapkan di lokasi pendaratan akan menjadi proyektil maut di tangan jentikan jemarinya.
 
 BZZZZT!
 
